@@ -9,7 +9,7 @@ MECÂNICAS DE TRANSIÇÃO (EVOLUÇÃO OU CRESCIMENTO)
 - Relacionar Atributos (max 6)
 
 
-SKILLS (API - ENGINE)
+# SKILLS (API - ENGINE)
 
 Attacks - em direção ao espaço
 - Linhas , front side or back or angle (diagonal on X style)
@@ -22,7 +22,7 @@ In Circle -> radius
 
 Composing in sequence -> how many, time interval?
 
-ATTACK PROJECTION -> VISUAL FX
+# ATTACK PROJECTION -> VISUAL FX
 
 - In Front 
 
