@@ -35,9 +35,19 @@ Composing in sequence -> how many, time interval?
 
 - Back and Front
 
+( fire, smoke, grey, slow 1.5x, stun 2.5 )
+
 - Project-external [Direction]
 ( THUNDER, 15PX, 1.2 SECONDS, HEIGHT SIZE 5 PTS, 2 OVERLAY FX)
 Overlay FX... pequena variação de core, espaço, são efeitos sobrepostos
+
+Element of FX
+
+Area of FX
+Consequences (stun, slow, damage, damage per sec....)
+Movements (serpentear, linha, estrela, circulo)
+
+
 
 MOBA FOCUS - NICH
 LOBBY WITH DIFFERENT TYPES OF MOBA....
