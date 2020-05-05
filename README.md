@@ -25,10 +25,12 @@ Composing in sequence -> how many, time interval?
 ATTACK PROJECTION -> VISUAL FX
 
 - In Front 
+
 (20 PX, ANIMATION AB, STUN AND SLOW)
 (10 PX, MUD, GREEN, DAMAGE)
 
 - Around
+
 (15 RADIUS, VAPOR ANIMATION, COPY HERO IN STAR, MUD, BROWM, SLOW3X, DAGE 30 PER SECOND)
 
 - Back and Front
