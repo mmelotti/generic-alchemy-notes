@@ -47,7 +47,7 @@ Composing in sequence -> how many, time interval?
 ( THUNDER, 15PX, 1.2 SECONDS, HEIGHT SIZE 5 PTS, 2 OVERLAY FX)
 Overlay FX... pequena variação de core, espaço, são efeitos sobrepostos
 
-Element of FX
+# Element of FX
 
 Area of FX
 
