@@ -1,6 +1,12 @@
 # generic-alchemy-notes
 Generic Alchemy Notes
 
+
+This is a project that aims in transmutate lead in gold, but not fool's gold. If the effort is successful, we can take a small step towards world peace and awareness.
+
+Peace, Mercuryo G.
+
+
 GS REUNION 04-05
 
 LEVEL COM CLASSE ++
