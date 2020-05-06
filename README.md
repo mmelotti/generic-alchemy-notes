@@ -50,14 +50,19 @@ Overlay FX... pequena variação de core, espaço, são efeitos sobrepostos
 Element of FX
 
 Area of FX
+
 Consequences (stun, slow, damage, damage per sec....)
+
 Movements (serpentear, linha, estrela, circulo)
 
 
 
 MOBA FOCUS - NICH
+
 LOBBY WITH DIFFERENT TYPES OF MOBA....
+
 OFFERS ENGINE, CONFIG, LOBBY MANAGER, HISTORY MODE, CONECTION MANAGEMENT, FIGHT STRUCTURE
+
 MOBA <-> RPG <-> AR VR
 
 # Towards Location and its games
