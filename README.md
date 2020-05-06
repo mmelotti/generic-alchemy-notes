@@ -59,3 +59,16 @@ MOBA FOCUS - NICH
 LOBBY WITH DIFFERENT TYPES OF MOBA....
 OFFERS ENGINE, CONFIG, LOBBY MANAGER, HISTORY MODE, CONECTION MANAGEMENT, FIGHT STRUCTURE
 MOBA <-> RPG <-> AR VR
+
+# Towards Location and its games
+
+Atributes:
+
+- Find Objects
+- Collect itens
+- Set traps
+- Time factor as a important atribute
+
+Examples:
+
+
