@@ -76,4 +76,17 @@ Atributes:
 
 Examples:
 
+Space ship game with  history, talks, skin (ship) , 2X2, EXAMPLE - one stuns, other make combo , shields...
 
+Soldat or dota like, simples and great movements and skills CUSTOMIZABLE
+
+# Goals
+
+Case for 3 games simple as base:
+
+- Run
+- Modify
+- Save status (server)
+- Multiplayer mechanics
+
+Planos de jogos customizados com hospedagem. Ano de hospedagem valor X, exemplos simples: classicos modificados, personalizar historia, personar cenarios e personagens...
