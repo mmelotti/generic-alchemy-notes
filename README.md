@@ -77,7 +77,7 @@ Space ship game with  history, talks, skin (ship) , 2X2, EXAMPLE - one stuns, ot
 
 Soldat or dota like, simples and great movements and skills CUSTOMIZABLE
 
-# Goals
+# Goals and Operation
 
 Case for 3 games simple as base:
 
