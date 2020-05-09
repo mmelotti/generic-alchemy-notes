@@ -87,3 +87,7 @@ Case for 3 games simple as base:
 - Multiplayer mechanics
 
 Planos de jogos customizados com hospedagem. Ano de hospedagem valor X, exemplos simples: classicos modificados, personalizar historia, personar cenarios e personagens...
+
+# FIXO E VOLÁTIL
+
+The idea of what you have and what do you want. O que você planeja versus o que você já e ou tem que ajuda no caminho. Air and Earth. Toughts and realization. Documents and the software. Descriptions and bugs solving. Description for new features. Documentação para trabalhar em acertos e novas features. The old description and the new documentation. Lost papers and topics organization on the cloud or files.
