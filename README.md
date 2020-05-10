@@ -96,4 +96,4 @@ The idea of what you have and what do you want. O que você planeja versus o que
 
 All movement comes from 2 powers in the phisycal world. It gets intense and hot, and then, it gets more static and cold. From that we derive other powers or effects such as fall and rise, the coming and going, attracting and expelling. As in the basic movement of life: inhalation and exhalation.
 
-Then, we see in history
+Then, we see in history all kind of movements that get very HOT (hippies, psichodelic, punk, grunge, rock, rap, trap....) and after a while it turns into something someway COLD. That happens because in the background, the universe is assimilating all this movements into something new, from there we got Solve et Coagula. Nowdays with the force of the internet
