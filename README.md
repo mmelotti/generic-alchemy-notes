@@ -99,3 +99,9 @@ All movement comes from 2 powers in the phisycal world. It gets intense and hot,
 Then, we see in history all kind of movements that get very HOT (hippies, psichodelic, punk, grunge, rock, rap, trap....) and after a while it turns into something someway COLD. That happens because in the background, the universe is assimilating all this movements into something new, from there we got Solve et Coagula. Nowdays with the force of the internet we easily see what movements are getting hot and what movements are getting cold. So we need to experiment various kinds of music and then some of the music movements (or styles) take the right or the good points that servers them and assimilate into their movements to create something new or to get strength because it is pop. The good thing to do is a real transformation, not taking the pop points, but taking the good points that add into their music movements something new, a real MERGE that offers to people a fresh and new breath, the point IS TO GIVE BACK TO THE PEOPLE ALL THE GOOD THAT WE GET FROM A DIFFERENT MOVEMENT OR WAY OF THINKING. Human kind must grow togheter, at least we should offer this news insights, it is only fair.
 
 The best example talking about music are synths. They are exactly the assimilation of various instruments in noises in one, sometimes all mixed up. All of this comes now heavily with eletronic music, also, eletricity is the assimilation of all brain actions in history, with electricity we can reproduce all human actions, and the new assimilation is the A.I. which we already saw the power and the transformation that is bringing to the world.
+
+# A few words about Gold
+
+Fazer o dever com o prazer. Ensaiando músicas que gosta. 
+
+Assim aprende React com Astrologia. Realidade Aumentada com Mitologia.
