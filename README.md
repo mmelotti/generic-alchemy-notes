@@ -92,6 +92,8 @@ Planos de jogos customizados com hospedagem. Ano de hospedagem valor X, exemplos
 
 The idea of what you have and what do you want. O que você planeja versus o que você já e ou tem que ajuda no caminho. Air and Earth. Toughts and realization. Documents and the software. Descriptions and bugs solving. Description for new features. Documentação para trabalhar em acertos e novas features. The old description and the new documentation. Lost papers and topics organization on the cloud or files.
 
-# Esquentar e esfriar, expandir e contrair
+# Hot and Cold - expandir e contrair
 
-All movement comes from 2 powers in the phisycal world. It gets intense and hot, and then, it gets more static and cold. From that we derive other powers or effects such as fall and rise, the coming and going, attracting and expelling. As in the basic movement of life: inspiration and experiment.
+All movement comes from 2 powers in the phisycal world. It gets intense and hot, and then, it gets more static and cold. From that we derive other powers or effects such as fall and rise, the coming and going, attracting and expelling. As in the basic movement of life: inhalation and exhalation.
+
+Then, we see in history
