@@ -106,4 +106,24 @@ The best example talking about music are synths. They are exactly the assimilati
 
 Fazer o dever com o prazer. Ensaiando músicas que gosta. 
 
-Assim aprende React com Astrologia. Realidade Aumentada com Mitologia.
+Assim aprende React com Astrologia. Realidade Aumentada com Mitologia.]
+
+
+# Poem - Resource
+
+FALANDO PARA SEMPRE
+
+Eu e você falando para sempre, só parando para respirar,
+
+varando dias e penetrando em cada manhã, assistindo-se desmanchar
+
+em infinitas tardes e noites. Sim! Noites quase imortais,
+
+mas, agora eles estão vindo, é o fim! Sim!
+
+Mais uma vez como em centenas de outras vezes.
+
+
+
+
+ESPERANÇA CONSCIENTE
