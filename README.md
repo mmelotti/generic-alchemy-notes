@@ -127,3 +127,15 @@ Mais uma vez como em centenas de outras vezes.
 
 
 ESPERANÇA CONSCIENTE
+
+Ter medo de morrer é correr por aí de olhos vendados,
+
+Ser consciente é a última esperança.
+
+Abra os olhos para o valor, o riso momentâneo, 
+
+Indefinível e inexplicavelmente de água na boca
+
+na mais apetitosa das refeições.
+
+Ignorar a morete dá a ela a vantagem do elemento surpresa.
