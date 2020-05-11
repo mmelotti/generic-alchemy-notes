@@ -12,7 +12,7 @@ GS REUNION 04-05
 LEVEL COM CLASSE ++
 
 MECÂNICAS DE TRANSIÇÃO (EVOLUÇÃO OU CRESCIMENTO)
-- Relacionar Atributos (max 6)
+- Relacionar Atributos (max 6), formato de estrela por exmeplo
 
 
 # SKILLS (API - ENGINE)
@@ -135,7 +135,7 @@ The best example talking about music are synths. They are exactly the assimilati
 
 Fazer o dever com o prazer. Ensaiando músicas que gosta. 
 
-Assim aprende React com Astrologia. Realidade Aumentada com Mitologia.]
+Assim aprende React com Astrologia. Realidade Aumentada com Mitologia.
 
 
 # Poem - Resource
@@ -217,6 +217,7 @@ que só um irmão ficou de pé e vimos
 então apenas um dos fantasmas em lençol.
 
 Não sei se eram espelhos, no final o fantasma
+
 caiu manchado de sangue do tiro na cabeça.
 
 Nunca houve fantasma. Só irmãos brincando com lençóis.
