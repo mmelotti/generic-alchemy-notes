@@ -137,6 +137,12 @@ Fazer o dever com o prazer. Ensaiando músicas que gosta.
 
 Assim aprende React com Astrologia. Realidade Aumentada com Mitologia.
 
+# Fogo e tecnologia
+
+O fogo pega fácil uma vez que já está quente o ambiente... mas no início é preciso esforço pra manter o fogo aceso.... mas uma vez que pega qualquer coisa serve como combustivel, o fogo consome quase tudo FISICAMENTE ... manter o fogo é mais fácil do que fazer o fogo... 
+
+O Ipod é como torrent para musica e é como o spotify, soundcloud e youtube atual. Há diversidade dentro da música é uma nova coisa, pois estamos vivendo nessa época de mistura, subdivisões dentro de um gênero. Por isso, coisas como o Rock e o Rap puro virarão mais difíceis de emplacar sem ter o lado pop, ou misturado. Como já aconteceu com o Rock, o Rap tá em alta e possível que dure uma década mais. Depois essas subdivisões se unirão em uma única coisa nova que é a síntese dos gêneros dentro de gêneros.
+
 
 # Poem - Resource
 
