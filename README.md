@@ -195,3 +195,29 @@ estou aqui e é isso, é isso!
 
 O sorriso da caveira feliz: ela queria um rosto para sorrir.
 
+
+FANTASMAS EM LENÇÓIS
+
+Matamos o preto, índio e pobre. Todo mundo morre.
+
+Enquanto umas línguas parecem bruxaria,
+
+outra cultura é a ameaça que nunca existiu.
+
+No deserto vi monstros que diziam ser meus irmãos,
+
+enquanto eles brincavam de tiro ao alvo com fantasmas,
+
+me senti deslocado, no lugar errado.
+
+O macaco falou! O macaco disse 
+
+que só um irmão ficou de pé e vimos 
+
+então apenas um dos fantasmas em lençol.
+
+Não sei se eram espelhos, no final o fantasma
+
+caiu manchado de sangue do tiro na cabeça.
+
+Nunca houve fantasma. Só irmãos brincando com lençóis.
