@@ -102,6 +102,31 @@ Exemplos de um mix que acontece: quando o trap pega do Rock a atitude e quem fic
 
 POEMA SOBRE A A PEDRA
 
+Sobrevivendo ao infinito de lugar nenhum
+
+a aparência está sempre em evidência.
+
+Não há lugar pra esconder suas propriedades,
+
+bem-vindo a terra do não-lugar!
+
+Aqui vivemos em anti-cidades isoladas feito ilha
+
+e toda comunicação é feita com fios e dispositivos
+
+que nos causaram tal auto-mutilação,
+
+mas ninguém se lembra! Parece que eu estava só, 
+
+lá, milhares de anos atrás.
+
+Essa lembrança é só minha? Nostalgia fantasiada
+
+provoca um alívio descontinuado ainda.
+
+Pra dar seguimentos ao fluxo do rio.
+
+Continue. Continue empurrando pedras.
 
 
 The best example talking about music are synths. They are exactly the assimilation of various instruments in noises in one, sometimes all mixed up. All of this comes now heavily with eletronic music, also, eletricity is the assimilation of all brain actions in history, with electricity we can reproduce all human actions, and the new assimilation is the A.I. which we already saw the power and the transformation that is bringing to the world.
