@@ -217,7 +217,6 @@ que só um irmão ficou de pé e vimos
 então apenas um dos fantasmas em lençol.
 
 Não sei se eram espelhos, no final o fantasma
-
 caiu manchado de sangue do tiro na cabeça.
 
 Nunca houve fantasma. Só irmãos brincando com lençóis.
