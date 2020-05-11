@@ -100,6 +100,10 @@ Then, we see in history all kind of movements that get very HOT (hippies, psicho
 
 Exemplos de um mix que acontece: quando o trap pega do Rock a atitude e quem fica popular tenta se relacionar com o Rock, como Lady Gaga, Lil Peep, Post Malone. Eu sou o novo X, eu sou Y Star. Como um sentimento de nostalgia e que em todo lugar se assume que tem valor. A síntese de algumas culturas em formas de instrumentos, o meio de auto expressão de uma cultura. A pedra a ser lapidada e que deve rolar é a cosnciência. Por isso Rock'n'Roll. Não é (mais) uma questão de expandir a consciência, mas de sublimá-la.
 
+POEMA SOBRE A A PEDRA
+
+
+
 The best example talking about music are synths. They are exactly the assimilation of various instruments in noises in one, sometimes all mixed up. All of this comes now heavily with eletronic music, also, eletricity is the assimilation of all brain actions in history, with electricity we can reproduce all human actions, and the new assimilation is the A.I. which we already saw the power and the transformation that is bringing to the world.
 
 # A few words about Gold
@@ -139,3 +143,30 @@ Indefinível e inexplicavelmente de água na boca
 na mais apetitosa das refeições.
 
 Ignorar a morete dá a ela a vantagem do elemento surpresa.
+
+RESPEITO
+
+Respeitar a vida é respeitar a morte. Enquanto vivo
+
+aprende a manter por perto o que te assustuva.
+
+Pra só então quando morrer a morte imortal
+
+ter certeza de que viveu naquele instante 
+
+infinito, minúsculo e intangivel.
+
+NO FIM
+
+Somos as últimas almas vivas nesse planeta virtual
+
+onde a vida é uma palavra que tentam enjaular.
+
+Tudo parece movimento, inércia relativa,
+
+não acredito em ontem, não creio em amanhã,
+
+estou aqui e é isso, é isso!
+
+O sorriso da caveira feliz: ela queria um rosto para sorrir.
+
