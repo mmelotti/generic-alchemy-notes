@@ -137,6 +137,13 @@ Fazer o dever com o prazer. Ensaiando músicas que gosta.
 
 Assim aprende React com Astrologia. Realidade Aumentada com Mitologia.
 
+# About free will (or the economy against life)
+
+This is harsh to considere it, and it is hard consdering it, but people could choice over going outside, right? How is it difference to carry a gun and do a blind shot? First sight you may thinks it does not make sense. But considering the pandemic affects now when science is showing that going outside represent a risk to life we have to considere it and feel it. The virus is real and we have to deal with many many considerations about the risk and about life. The greater problem as a affect is to overload the hospitals and causes a break into the health system as a whole (regionally).
+
+People want to keep a dead system alive. The economy the way we know must change. The way we look to each other must change. We will have to really see ourselfs not only as a indivisual, but also as a member of a community. It starts in the smallests organization, as in family. 
+
+
 # Fogo e tecnologia
 
 O fogo pega fácil uma vez que já está quente o ambiente... mas no início é preciso esforço pra manter o fogo aceso.... mas uma vez que pega qualquer coisa serve como combustivel, o fogo consome quase tudo FISICAMENTE ... manter o fogo é mais fácil do que fazer o fogo... 
