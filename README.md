@@ -143,6 +143,12 @@ This is harsh to considere it, and it is hard consdering it, but people could ch
 
 People want to keep a dead system alive. The economy the way we know must change. The way we look to each other must change. We will have to really see ourselfs not only as a indivisual, but also as a member of a community. It starts in the smallests organization, as in family. 
 
+Os que querem sair e os que querem entrar. De uma forma geral, mas não totalmente verdadeira, em uma generalização, as pessoas que atualmente defendem a saída em um amniente hostil a vida, com alto nível de contágio de qualquer doença são as pessoas pensando de forma
+
+Isso não só atualmente, mas em breve no futuro também.
+E depois do meio esquentar.
+Há a troca de polo, ou síntese dos polos que vai ser a nova tese e irá de encontra a sua anti-tese.
+
 
 # Fogo e tecnologia
 
