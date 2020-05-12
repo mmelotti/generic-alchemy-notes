@@ -143,6 +143,8 @@ O fogo pega fácil uma vez que já está quente o ambiente... mas no início é 
 
 O Ipod é como torrent para musica e é como o spotify, soundcloud e youtube atual. Há diversidade dentro da música é uma nova coisa, pois estamos vivendo nessa época de mistura, subdivisões dentro de um gênero. Por isso, coisas como o Rock e o Rap puro virarão mais difíceis de emplacar sem ter o lado pop, ou misturado. Como já aconteceu com o Rock, o Rap tá em alta e possível que dure uma década mais. Depois essas subdivisões se unirão em uma única coisa nova que é a síntese dos gêneros dentro de gêneros.
 
+O fogo é a extensão de nossa vontade, tecnologia é a extensão de nossas capacidades. Tecnologia é ferramenta, o externo que mesclado com nossa razão permite aumentar a capacidade sob a vontade humana. A ferramenta é reflexo da humanidade, por isso as auto-mutilações de McLuhan. De acordo com a Tradição, o que está fora é um reflexo do que está dentro, a vibração em um determinado espectro por vezes materializada. Ferramentas com alguma consciência faz sentido, como elementais da tradição (ex: elemental da terra - um droid faz as funções que foram determinadas por um conjunto de instruções). 
+
 
 # Poem - Resource
 
@@ -173,7 +175,7 @@ indefinível e de dar água na boca
 
 na mais apetitosa das refeições.
 
-Ignorar a morete dá a ela a vantagem do elemento surpresa.
+Ignorar a morte dá a ela a vantagem do elemento surpresa.
 
 RESPEITO
 
