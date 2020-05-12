@@ -169,7 +169,7 @@ Ser consciente é a última esperança.
 
 Abra os olhos para o valor, o riso momentâneo, 
 
-Indefinível e inexplicavelmente de água na boca
+indefinível e de dar água na boca
 
 na mais apetitosa das refeições.
 
