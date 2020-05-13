@@ -131,6 +131,8 @@ Continue. Continue empurrando pedras.
 
 The best example talking about music are synths. They are exactly the assimilation of various instruments in noises in one, sometimes all mixed up. All of this comes now heavily with eletronic music, also, eletricity is the assimilation of all brain actions in history, with electricity we can reproduce all human actions, and the new assimilation is the A.I. which we already saw the power and the transformation that is bringing to the world.
 
+Dito isso... the pop culture are full of examples of the opposite forces that colide into something better, in literature, Nietzche and Blake say a few words about this, actually, the blake works are full of this opposite forces in shock, they quote a very simillar vision when mencioning the case of the snake and the eagle. In Nietzche's vision in Zaratrusta, the snake and the eagle compose a image of the opposite merging, the eagle carries the snake in its flight. It's cleary iamge of this two poles touching each other and it causes multiple beneficts for both.
+
 # A few words about Gold
 
 Fazer o dever com o prazer. Ensaiando músicas que gosta. 
