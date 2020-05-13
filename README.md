@@ -15,6 +15,29 @@ MECÂNICAS DE TRANSIÇÃO (EVOLUÇÃO OU CRESCIMENTO)
 - Relacionar Atributos (max 6), formato de estrela por exmeplo
 
 
+
+# TEMP
+CRIAR PASTA ***
+
+Dividir a metade em 2 partes. Uma com foco na palavra, outra com foco na arte.
+
+H está passando por uma transformação. Acho que na verdade sempre foi que está em constante transformação, mudança, está na essência
+as mudanças dos B...
+
+Ref de BIO
+
+REF de  desafios....
+
+REF de renascimento, criação e CONFLITO
+
+Citar os amigos, agradecimentos. E vai continuar, qUe venha a proxima fase, e que plantem cada vez mais sementes boas....
+
+Pelo local com poucos ouvidos para o novo, fizemos muitas amizades e relações que vão durar para a vida, pessoas talentosas fazendo arte da mais bela....
+
+E ESSE, PARTE 2
+H esse vídeo está pra sair faz muito tempo, mas veio em boa hora, saudades boas de todos,
+
+
 # SKILLS (API - ENGINE)
 
 Attacks - em direção ao espaço
