@@ -19,7 +19,7 @@ MECÂNICAS DE TRANSIÇÃO (EVOLUÇÃO OU CRESCIMENTO)
 # TEMP
 CRIAR PASTA ***
 
-Dividir a metade em 2 partes. Uma com foco na palavra, outra com foco na arte.
+Dividir a mensagem em 2 partes. Uma com foco na palavra, outra com foco na arte.
 
 H está passando por uma transformação. Acho que na verdade sempre foi que está em constante transformação, mudança, está na essência
 as mudanças dos B...
