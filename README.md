@@ -115,6 +115,10 @@ Planos de jogos customizados com hospedagem. Ano de hospedagem valor X, exemplos
 
 The idea of what you have and what do you want. O que você planeja versus o que você já e ou tem que ajuda no caminho. Air and Earth. Toughts and realization. Documents and the software. Descriptions and bugs solving. Description for new features. Documentação para trabalhar em acertos e novas features. The old description and the new documentation. Lost papers and topics organization on the cloud or files.
 
+# a
+
+A ideia de originalidade está ligada a individualidade, na negação da inspiração pelo ambiente e ações das quais faz parte, parte do principio de um isolamento inexistente que nega a ligação que há entre cada um dos objetos com que cruzamos na vida, como se fossem coisas tão diferentes de nós que sua mensagem não chega a nos tocar em algum nível, ou em nível da qual me considero tão superior que suponho que aquilo nunca me atinja, de nenhum jeito possível, supóe que apenas pela inspiração como um criação totalmente espontâneia que, então, não deve ter um modelo pré estabelecido e próximo do caos que as coisas são criadas.. originais....
+
 # Hot and Cold - expandir e contrair
 
 All movement comes from 2 powers in the phisycal world. It gets intense and hot, and then, it gets more static and cold. From that we derive other powers or effects such as fall and rise, the coming and going, attracting and expelling. As in the basic movement of life: inhalation and exhalation.
