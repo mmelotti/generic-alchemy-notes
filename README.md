@@ -38,26 +38,6 @@ E ESSE, PARTE 2
 H esse vídeo está pra sair faz muito tempo, mas veio em boa hora, saudades boas de todos,
 
 
-MUSIC
-
-SOBRE IN OUT, 40,
-
-Vocês querem ir pra fora, eu quero ir pra dentro
-
-Aí fora está frio, mas está quente aqui dentro,
-
-Devagar eu ligo o carro, o motor vai aquecendo,
-
-Coração a mil, tanta coisa acontecendo,
-
-Devagar fico parado, então eu vou pra dentro,
-
-Eu quero ir pra dentro, pro infinito,
-o desconhecido quase esquecido,
-
-REPETIÇÕES, OPOSIÇÃO A 40... trap, ref marcante... PARA THIS WEEKEND
-
-
 APLICAÇÃO PRÁTICA DO CONCEITO DE POLOS
 
 Sabedoria e ignorância,
