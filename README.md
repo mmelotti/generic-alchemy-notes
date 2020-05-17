@@ -58,6 +58,12 @@ o desconhecido quase esquecido,
 REPETIÇÕES, OPOSIÇÃO A 40... trap, ref marcante... PARA THIS WEEKEND
 
 
+APLICAÇÃO PRÁTICA DO CONCEITO DE POLOS
+
+Sabedoria e ignorância,
+concorda com nazismo + considera nazismo de esquerda ENTÃO põe a culpa na esquerda e por associação, acreditam ser nazista 
+
+Acima o nível de ignorância é muito alto, pode se relacionar o crescimento desse novo tipo de fascismo talvez, mas se o fascismo for consideramo como a máxima ignorância..... o que talvez até seja nos dias atuais. 
 
 
 # SKILLS (API - ENGINE)
