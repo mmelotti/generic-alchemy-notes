@@ -53,11 +53,17 @@ IA de internet está bem consolidada, IA de negócio também em alguns locais. I
 
 No caso da IA de negócios, elas podem usar relações matemáticas complexas aparentemente indecifráveis para um ser humano, e pode dar uma relação de causa e efeito que a primeira vista é inexplicavel, como "alguém que pega empréstimo na quarta-feira paga mais rapidamente. Mas elas podem nos ensinar sobre essa relação de causa e efeito ou esses preditores sempre serão obscuros para os humanos? Mesmo que essas correlações não possam ser explicadas de maneira tão simples que os humanos possam entender, essas métricas incomuns constituem o que o fundador da Smart Finance (Ke Jiao) chama de um novo padrão de beleza para empréstimos.
 
-O caso do conhecimento médico: 
+O caso do conhecimento médico: o poder de fornecer diasgnósticos precisos é praticamente mantido engarrafado por um pequeno número de humanos muito talentosos, os médicos. Estes possuem memórias imperfeitas e tempo limitado para acompanhar novos avanços no campo. Podemos argumentar que uma vasta riqueza de informações médicas está espalhada pela internet (e está!), mas não de uma forma navegável para a maioria das pessoas. O diagnóstico de primeira linha ainda é muito racionado com base na geografia e claro, na capacidade de pagar por ele. Um bom exemplo disso acontece em diversos países, onde pessoas precisam se locomover entre cidades e estados para achar um especialista em determinada área, ou seja, esses recursos são de fato bem limitados. 
+
+Um ponto importante é que a tecnologia de IA poderia transformar quase qualquer profissional médico em um superdiagnosticador, com uma capacidade - a IA como extensão de suas capacidades - incomum de detectar correlações ocultas e uma memória perfeita - a tecnologia como extensão de sua memória - que pode ser usada. Ao invés de substituir os médicos por algoritmos, o aplicativo de diagnóstico os capacita e age como um mediador, ou "aplicativo de navegação" para o processo de diagnóstico, como se ele fosse seu mapa indicando as rotas, mas com a condução do carro pelo médico.
+
+
 
 
 
 A IA de percepção está digitalizando nosso mundo físico.
+
+Insights e conhecimentos de um livro X....
 
 
 
