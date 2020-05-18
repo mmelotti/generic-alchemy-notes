@@ -49,7 +49,13 @@ Acima o nível de ignorância é muito alto, pode se relacionar o crescimento de
 
 4 eras, ondas ou marco.
 
-IA de internet está bem consolidada, IA de negócio também em alguns locais. IA de internet tem relação com motores ou sistemas de recomendação, os algoritmos que criam a tal bolha recomendando coisas cada vez mais a gosto do usuário, preferências pessoais. A eleição de 2016 no EUA é um exemplo. Tem o exemplo do robo reporter, que ao fim de um jogo esportivo, por exemplo, já cria um ráipido resumo em menos de 1 minuto. No caso da IA de negócios, elas podem usar relações matemáticas complexas aparentemente indecifráveis para um ser humano, e pode dar uma relação de causa e efeito que a primeira vista é inexplicavel, como "alguém que pega empréstimo na quarta-feira paga mais rapidamente.
+IA de internet está bem consolidada, IA de negócio também em alguns locais. IA de internet tem relação com motores ou sistemas de recomendação, os algoritmos que criam a tal bolha recomendando coisas cada vez mais a gosto do usuário, preferências pessoais. A eleição de 2016 no EUA é um exemplo. Tem o exemplo do robo reporter, que ao fim de um jogo esportivo, por exemplo, já cria um ráipido resumo em menos de 1 minuto. 
+
+No caso da IA de negócios, elas podem usar relações matemáticas complexas aparentemente indecifráveis para um ser humano, e pode dar uma relação de causa e efeito que a primeira vista é inexplicavel, como "alguém que pega empréstimo na quarta-feira paga mais rapidamente. Mas elas podem nos ensinar sobre essa relação de causa e efeito ou esses preditores sempre serão obscuros para os humanos? Mesmo que essas correlações não possam ser explicadas de maneira tão simples que os humanos possam entender, essas métricas incomuns constituem o que o fundador da Smart Finance (Ke Jiao) chama de um novo padrão de beleza para empréstimos.
+
+O caso do conhecimento médico: 
+
+
 
 A IA de percepção está digitalizando nosso mundo físico.
 
