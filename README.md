@@ -62,6 +62,10 @@ template do resultado:
 
 # temp IA
 
+A renda básica virá, poderemos pensar numa coexistencia pacifica entre nós e as máquinas (governo)
+
+Estamos escolhendo hoje a cada click quem irá regular e tomar o lado humano no que diz respeito aos dados que hoje damos de graça.
+
 4 eras, ondas ou marco.
 
 IA de internet está bem consolidada, IA de negócio também em alguns locais. IA de internet tem relação com motores ou sistemas de recomendação, os algoritmos que criam a tal bolha recomendando coisas cada vez mais a gosto do usuário, preferências pessoais. A eleição de 2016 no EUA é um exemplo. Tem o exemplo do robo reporter, que ao fim de um jogo esportivo, por exemplo, já cria um ráipido resumo em menos de 1 minuto. 
