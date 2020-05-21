@@ -95,7 +95,11 @@ No primeiro momento o usuário não tem controle da recomendação, ele visualiz
 Da mesma forma que acontece com o sistema de navegação para os médicos, há ferramentas judiciais que auxiliam o ser humano a tomar decisões informadas, segundo o autor, essas recomendações ajudariam a equilibrar a balança da justiça e corrigir os vieses presentes em juízes bem treinados, um estudo com juízes de Israel mostrou que eles são muito mais severos antes do almoço e mais brandos na concessão de liberdade condicional depois de uma boa refeição.
 
 
-A IA de percepção está digitalizando nosso mundo físico.
+A IA de percepção está digitalizando nosso mundo físico. Com reconhecimento de faces e vozes por exemplo.
+
+Quando você pede uma refeição completa falando uma frase no sofá você está online ou offline? (online claro) Quando sua geladeira em casa diz ao seu carrinhode compras que a soja acabou, você está se movendo por um mundo físico ou virtual? Provavelmente uma mistura dos dois. Podemos até pedir a refeição offline mas só chega no outro ponto online. Então é um combinado entre os dois mundos, o que já vivemos de certa maneira atualmente.
+
+EDUCAÇÂO - 
 
 Insights e conhecimentos de um livro X....
 
