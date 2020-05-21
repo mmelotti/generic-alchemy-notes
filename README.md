@@ -105,6 +105,8 @@ Nesse cenário, "durante o ensino presencial, as escolas empregarão um modelo d
 
 Essa parte é apenas uma fração de de todo o quadro da educação em IA, que é a parte da sala de ula. Ele continua "durante a palestra, uma câmera usa reconhecimento facial e análise de postura para ver a participação, verificar a atenção dos alunos e avaliar o nível de compreensão baseado em gestos, como assentir, balançar a cabeça e expressões de perplexidade. Todos esses dados - resposta às perguntas, atenção e compreensão - vão diretamente para o perfil do estudante, preenchendo uma imagem em tempo real de que os alunos sabem e em que parte precisam de ajuda extra".
 
+Como exemplo, essa tecnologia alimentada por IA economizará tempo dos professores na correção dos conceitos básicos, permitindo que dediquem esse tempo para se comunicar com os alunos sobre conceitos de redação de nível mais alto, já que erros de padrão de ortografia podem ser marcados automaticamente, com deduções predeterminadas de pontos para certos erros. Para os alunos que estão "ficando para trás", os pais serão automaticamente notificados sobre a situação de seus filhos, dando uma explicação clara e detalhada de quais conceitos o aluno está tendo dificuldade.
+
 
 Insights e conhecimentos de um livro X....
 
