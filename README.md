@@ -15,6 +15,18 @@ MECÂNICAS DE TRANSIÇÃO (EVOLUÇÃO OU CRESCIMENTO)
 - Relacionar Atributos (max 6), formato de estrela por exmeplo
 
 
+GS REUNION 20 05
+
+1
+- publicar aventura, missoes, condições, dialogos se houve
+- replicar os dados....
+
+2
+- Continuar o curso
+- pensar se há como haver integração com GS
+- fazer um build em android
+
+
 
 # TEMP
 CRIAR PASTA ***
