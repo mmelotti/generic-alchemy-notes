@@ -99,7 +99,12 @@ A IA de percepção está digitalizando nosso mundo físico. Com reconhecimento 
 
 Quando você pede uma refeição completa falando uma frase no sofá você está online ou offline? (online claro) Quando sua geladeira em casa diz ao seu carrinhode compras que a soja acabou, você está se movendo por um mundo físico ou virtual? Provavelmente uma mistura dos dois. Podemos até pedir a refeição offline mas só chega no outro ponto online. Então é um combinado entre os dois mundos, o que já vivemos de certa maneira atualmente.
 
-EDUCAÇÂO - 
+EDUCAÇÂO - Os sistemas de educação são executados no "modelo fabril" do século XIX: todos os alunos são forçados a aprender na mesma velocidade, da mesma maneira, no mesmo lugar e no mesmo tempo. Essa mudança na IA acontece em quatros cenários: ensino em sala de aula, lição de casa e exercícios, provas e notas, e aulas personalizadas. O proceso de aprendizado do aluno, como quais conceitos já entenderam, em quais tem dificuldades, como reagem a diferentes métodos de ensino, se prestam atenção durante a aula, com que rapidez respondem às perguntas, e quais incetivos os motivam. Esses dados são coletados e usados para atualizar o processo educacional.
+
+Nesse cenário, "durante o ensino presencial, as escolas empregarão um modelo de professor duplo que combinar uma palestra de transmissão remota de um educador de alto nível e uma atenção mais pessoal do professor na sala de aula. Na primeira metade da aula, um professor de primeira linha faz uma palestra por meio de uma televisão de tela grande na frente da turma. Esse professor dá palestras simultaneamente para cerca de vinte salas de aula e faz perguntas que os alunos devem responder por dispositivos portáteis em tempo real, demonstrando se compreendem os conceitos."
+
+Essa parte é apenas uma fração de de todo o quadro da educação em IA, que é a parte da sala de ula. Ele continua "durante a palestra, uma câmera usa reconhecimento facial e análise de postura para ver a participação, verificar a atenção dos alunos e avaliar o nível de compreensão baseado em gestos, como assentir, balançar a cabeça e expressões de perplexidade. Todos esses dados - resposta às perguntas, atenção e compreensão - vão diretamente para o perfil do estudante, preenchendo uma imagem em tempo real de que os alunos sabem e em que parte precisam de ajuda extra".
+
 
 Insights e conhecimentos de um livro X....
 
