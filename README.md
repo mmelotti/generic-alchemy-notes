@@ -17,11 +17,11 @@ MECÂNICAS DE TRANSIÇÃO (EVOLUÇÃO OU CRESCIMENTO)
 
 GS REUNION 20 05
 
-1
+back
 - publicar aventura, missoes, condições, dialogos se houve
 - replicar os dados....
 
-2
+front
 - Continuar o curso
 - pensar se há como haver integração com GS
 - fazer um build em android
