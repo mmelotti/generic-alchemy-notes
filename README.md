@@ -109,6 +109,8 @@ Como exemplo, essa tecnologia alimentada por IA economizará tempo dos professor
 
 Contudo, entramos na questão dos espaços públicos e dados privados, por exemplo, as cidades chinesas já usam uma densa rede de câmeras e sensores para reforças as leis de trânsit.. Muitos norte-americanos podem ter ressalvas sobre expor informações em alguns espaços que os chineses não tem, já que "eles não querem que o big brother ou a América corporativa saibam tanto sobre o que eles estão fazendo." enquanto o povo chinês aceita que se rosto, voz e escolhas de compras sejam capturados e digitalizados e esse é um exemplo da maior disposição chinesa para trocar algum grau de privacidade por conveniência. Aqui temos grandes questões que povoam o imaginário ocidental, como se os chineses realmente tem essa liberdade de escolha, e afinal, quais são os chineses que são monitorados e os que não são, há alguma diferença na tratativa desses casos? 
 
+Os Estados Unidos continuam lutando para implementar proteções apropriadas à privacidade do usuário, uma tensão ilustrada pelo escândalo da Cambridge Analytica do Facebook e pelas subsequentes audiências no congresso. A China começou a implementar sua própria lei de segurança cibernética em 2017, que incluía novas punições para ou venda ilegal de dados dos usuários. Em termos de impacto imediato, a relativa abertura da China para a coleta de dados em locais públicos significa uma grande vantagem inicial na implementação da IA de percepção. Está acelerando a digitalização de ambientes urbanos e abrindo as portas para novas aplicações no varejo, segurança e no transporte.
+
 Insights e conhecimentos de um livro X....
 
 
