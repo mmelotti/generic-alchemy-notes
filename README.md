@@ -44,6 +44,9 @@ padrão de nome pra componente que segue AComponenteAtomo , OComponenteOrganismo
 basicamente vai ser DSystem -> Atom/comp --(PR pra)--> Dsystem --> Dev
 fluxo , PR, onde starta
 
+Estilo dos ícones é com base no material-UI,
+
+Exemplos de imagens - divisão de componentes
 
 
 # TEMP
