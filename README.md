@@ -57,20 +57,6 @@ concorda com nazismo + considera nazismo de esquerda ENTÃO põe a culpa na esqu
 
 Acima o nível de ignorância é muito alto, pode se relacionar o crescimento desse novo tipo de fascismo talvez, mas se o fascismo for consideramo como a máxima ignorância..... o que talvez até seja nos dias atuais. 
 
-POKEPROJECT MAPPING:
-
-template da busca: 
-- titulo, descrição, search box, cards de resultado
-- cards de resultado: codigo, nome, tag, imagem
-- tag: icone, nome
-- search box: icone com placeholder
-
-template do resultado:
-- cabeçalho, abas, e conteúdo
-- cabeçalho: botao voltar, descricão, imagens
-- abas: descrição (about, stats, evolution)
-- about: descrição, subtitulo e conteúdo
-- stats: descrição, pontuação com sistema de progresso
 
 # temp IA
 
