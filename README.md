@@ -27,6 +27,21 @@ front
 - fazer um build em android
 
 
+ATOMIC DESIGN
+
+PADRÕES DEV, COMMIT E PR,....
+INSIGHTS...
+BOOK TRADUZ....
+
+
+When thinking about complexity of elements, it helps viewing molecules as “helpers” and organisms as “standalone” modules. If an element doesn’t clearly fall into either group, asking these questions may help:
+- Is this more of a supporting element or a standalone one?
+- Would it normally be part of something else and be reused within various components? (probably molecule)
+- Is it a well defined and relatively independent part or section of a page? (probably organism)
+
+padrão de nome pra componente que segue AComponenteAtomo , OComponenteOrganismo, MComponenteMolecula, a ideia era facilitar pra saber o que era o que, pq quando vamos desenvolvendo o projeto a ideia é que o atomo praticamente não seja modificado pra não mexer em todo projeto, ai ja sabendo se é um atomo ou não, o dev consegue visualizar em qual nivel precisa fazer uma modificação.... avaliar como time se há ganho real e readaptar caso encontremos um padrão pelo qual valha a pena trocar.
+
+
 
 # TEMP
 CRIAR PASTA ***
