@@ -41,6 +41,9 @@ When thinking about complexity of elements, it helps viewing molecules as “hel
 
 padrão de nome pra componente que segue AComponenteAtomo , OComponenteOrganismo, MComponenteMolecula, a ideia era facilitar pra saber o que era o que, pq quando vamos desenvolvendo o projeto a ideia é que o atomo praticamente não seja modificado pra não mexer em todo projeto, ai ja sabendo se é um atomo ou não, o dev consegue visualizar em qual nivel precisa fazer uma modificação.... avaliar como time se há ganho real e readaptar caso encontremos um padrão pelo qual valha a pena trocar.
 
+basicamente vai ser DSystem -> Atom/comp --(PR pra)--> Dsystem --> Dev
+fluxo , PR, onde starta
+
 
 
 # TEMP
