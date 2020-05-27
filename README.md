@@ -251,6 +251,22 @@ O Ipod é como torrent para musica e é como o spotify, soundcloud e youtube atu
 
 O fogo é a extensão de nossa vontade, tecnologia é a extensão de nossas capacidades. Tecnologia é ferramenta, o externo que mesclado com nossa razão permite aumentar a capacidade sob a vontade humana. A ferramenta é reflexo da humanidade, por isso as auto-mutilações de McLuhan. De acordo com a Tradição, o que está fora é um reflexo do que está dentro, a vibração em um determinado espectro por vezes materializada. Ferramentas com alguma consciência faz sentido, como elementais da tradição (ex: elemental da terra - um droid faz as funções que foram determinadas por um conjunto de instruções). 
 
+# Repetições e aprimoramento
+
+Tudo que se repete, se aprimora, mas também se desgasta.
+
+Pela repetição de ataques selvagens o homem aprende a se defender,
+
+por se defender de ataques selvagens, ele se aprimora e cria armas,
+
+por criar armas, se convence que pode demoniar os animais,
+
+e pela repetição de dominação dos animais, sistematiza a dominação,
+
+por repetir a sistematização, precisa expandir sua dominação,
+
+e de tanto expandir sua dominação, se perde.
+
 
 # Poem - Resource
 
