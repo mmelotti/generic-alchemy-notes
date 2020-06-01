@@ -26,6 +26,11 @@ front
 - pensar se há como haver integração com GS
 - fazer um build em android
 
+EXPOSED AND FIGHTS 31-05
+
+TRUMP, AVICI, DAI....ANTIFA TERRORIST.... UNIÃO,,,, VIDAS IMPORTAM BLACK LIVES MATTER .... CONFUSÃO DEMOCRACIA.... TIMES ARE CHANGING, REVOLTS, TRUE.... THE YEAR O F THE SUN....
+
+O OLHO DO SOL
 
 
 # TEMP
