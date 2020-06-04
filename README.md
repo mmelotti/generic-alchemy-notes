@@ -6,6 +6,8 @@ This is a project that aims in transmutate lead in gold, but not fool's gold. If
 
 Peace, Mercuryo G.
 
+Os logs de alteração da coisa toda são muito importantes.
+
 # Simple Notes
 GS REUNION 04-05
 
