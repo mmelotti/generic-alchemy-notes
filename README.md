@@ -10,6 +10,10 @@ Os logs de alteração da coisa toda são muito importantes.
 
 Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações.
 
+Logo as pessoas estarão escrevendo livros no github.
+Se já não o fazem, vai ver na verdade o nunca deixaram de fazer.
+
+
 # Simple Notes
 GS REUNION 04-05
 
