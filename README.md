@@ -8,6 +8,8 @@ Peace, Mercuryo G.
 
 Os logs de alteração da coisa toda são muito importantes.
 
+Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações.
+
 # Simple Notes
 GS REUNION 04-05
 
