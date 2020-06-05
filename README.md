@@ -285,6 +285,30 @@ por repetir a sistematização, precisa expandir sua dominação,
 e de tanto expandir sua dominação, se perde.
 
 
+# real time analisys
+
+3 day in a row, starting now
+
+O que acontece nos Brasil tem grande força em como as coisas acontecem nos EUA.
+
+Há alguma simetria. Os presidentes são similares.
+
+Populistas que entendem a base para qual falam.
+
+Essa base precisa ser quebrada.
+
+Será impossível jogar luz na escuridão, um óculos para quem enxerga mal,
+resgatar alguns os que são puxados pela corrente?
+
+Ele já fez muito mal até aqui, as pessoas sabem disso,
+
+Mas muitas estão sendo levadas em uma corrente, há uma grande força nessa corrente, ela precisa ser analisada.
+
+Essa corrente atualmente parece ser uma corrente de ódio. De orgulho, de ego, do indivíduo acima de tudo, o resto todo por baixo sempre que der. É uma aberração que ele ainda esteja no poder. Parece que já não há o que perder. Mas nas verdade já estamos perdendo a luta que todos paíse estão combatendo, essa pandemia. Essa corrente não parece de paz, mas também parece uma corrente que atua um pouco na superfície, pois se quebra um argumento de fascista muito fácil, é por isso que eles
+
+
+
+
 # Poem - Resource
 
 FALANDO PARA SEMPRE
