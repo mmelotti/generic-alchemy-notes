@@ -20,6 +20,9 @@ Isso definitivamente é um livro dentro ed um livro, assim como toda a vida é.
 
 
 # Simple Notes
+
+Não sei se vale a pena escrever para as massas sobre o número 17...
+
 GS REUNION 04-05
 
 LEVEL COM CLASSE ++
