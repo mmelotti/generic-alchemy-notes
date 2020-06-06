@@ -8,14 +8,15 @@ Peace, Mercuryo Mercurio.
 
 Os logs de alteração da coisa toda são muito importantes.
 
-Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações. QUal sua história?
+Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações. Qual a sua história?
 
 Logo as pessoas estarão escrevendo livros no github.
+
 Se já não o fazem, vai ver na verdade o nunca deixaram de fazer.
 
 Acho que esse negócio é um livro.
 
-Isso definitivamente é um livro de um livro, assim como toda a vida é.
+Isso definitivamente é um livro dentro ed um livro, assim como toda a vida é.
 
 
 # Simple Notes
