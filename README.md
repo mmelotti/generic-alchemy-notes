@@ -4,14 +4,16 @@ Generic Alchemy Notes
 
 This is a project that aims in transmutate lead in gold, but not fool's gold. If the effort is successful, we can take a small step towards world peace and awareness.
 
-Peace, Mercuryo G.
+Peace, Mercuryo Mercurio.
 
 Os logs de alteração da coisa toda são muito importantes.
 
-Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações.
+Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações. QUal sua história?
 
 Logo as pessoas estarão escrevendo livros no github.
 Se já não o fazem, vai ver na verdade o nunca deixaram de fazer.
+
+Acho que esse negócio é um livro...
 
 
 # Simple Notes
