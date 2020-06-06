@@ -23,6 +23,10 @@ Isso definitivamente é um livro dentro ed um livro, assim como toda a vida é.
 
 Não sei se vale a pena escrever para as massas sobre o número 17...
 
+76 commits nesse livro, 77 com esse. Falar do 17 impossível fugir do tarot. O número 17 só é o que é devido ao 7 + 10. Acho que só estou procurando uma desculpa pra falar logo disso.
+
+
+
 GS REUNION 04-05
 
 LEVEL COM CLASSE ++
