@@ -13,7 +13,9 @@ Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas int
 Logo as pessoas estarão escrevendo livros no github.
 Se já não o fazem, vai ver na verdade o nunca deixaram de fazer.
 
-Acho que esse negócio é um livro...
+Acho que esse negócio é um livro.
+
+Isso definitivamente é um livro de um livro, assim como toda a vida é.
 
 
 # Simple Notes
