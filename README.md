@@ -25,6 +25,9 @@ Não sei se vale a pena escrever para as massas sobre o número 17...
 
 76 commits nesse livro, 77 com esse. Falar do 17 impossível fugir do tarot. O número 17 só é o que é devido ao 7 + 10. Acho que só estou procurando uma desculpa pra falar logo disso.
 
+Todo esse temp vai ter que sumir, se organizar, pra não virar caos. Temp é temp, algo precisa ser mudado ai.
+
+Não esquecer a verdade, honestidade acima de tudo sempre que possível falar.
 
 
 GS REUNION 04-05
