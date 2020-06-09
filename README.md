@@ -302,8 +302,6 @@ e de tanto expandir sua dominação, se perde.
 
 # real time analisys
 
-3 day in a row, starting now
-
 O que acontece nos Brasil tem grande força em como as coisas acontecem nos EUA.
 
 Há alguma simetria. Os presidentes são similares.
