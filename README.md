@@ -18,6 +18,7 @@ Acho que esse negócio é um livro.
 
 Isso definitivamente é um livro dentro ed um livro, assim como toda a vida é.
 
+Acho que esse livro é um dos mais difíceis de se escrever, não pela nova forma de interação, mas pela rotina de buscar algo mais para compartilhar. Lebrar de compartilhar o belo de nós sempre que possível.
 
 # Simple Notes
 
