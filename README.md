@@ -194,6 +194,14 @@ Space ship game with  history, talks, skin (ship) , 2X2, EXAMPLE - one stuns, ot
 
 Soldat or dota like, simples and great movements and skills CUSTOMIZABLE
 
+# Template Based Dev. Guidelines
+
+Se Template N, N+1 , N+2... [ composed-by ]  Organismo N, N+1, N+2.... ou GComponente N, N+1, N+2
+
+THEN You should problably want a BaseTemplate.
+
+
+
 # Goals and Operation
 
 Case for 3 games simple as base:
