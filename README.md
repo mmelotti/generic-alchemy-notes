@@ -289,7 +289,9 @@ O Ipod é como torrent para musica e é como o spotify, soundcloud e youtube atu
 
 O fogo é a extensão de nossa vontade, tecnologia é a extensão de nossas capacidades. Tecnologia é ferramenta, o externo que mesclado com nossa razão permite aumentar a capacidade sob a vontade humana. A ferramenta é reflexo da humanidade, por isso as auto-mutilações de McLuhan. De acordo com a Tradição, o que está fora é um reflexo do que está dentro, a vibração em um determinado espectro por vezes materializada. Ferramentas com alguma consciência faz sentido, como elementais da tradição (ex: elemental da terra - um droid faz as funções que foram determinadas por um conjunto de instruções). 
 
-Código e instruções estão ligados. Software é um elemental mais sublimado e o hardware mais denso. O Software é a prática da mente, o hardware é a prática do corpo. A evolução do software é a evolução dos processos mentais humanos e a evolução do hardware é a materização das potencialidades humanas do corpo.
+Código e instruções estão ligados. Software é um elemental mais sublimado e o hardware mais denso. O Software é a prática da mente, o hardware é a prática do corpo. A evolução do software é a evolução dos processos mentais humanos e a evolução do hardware é a materização das potencialidades humanas do corpo. Precisamos ver o cérebro e coração com mais cuidado, eles são aquelas coisas apolares, que transitam entre uma borda e outra. Principalmente o coração.
+
+A evolução dos processos sobre software e hardware é força e energia, guidelines que serão automizadas como algumas já o foram, padrões que foram assimilados como observer. Assim maximizamos o benefício repetindo o certo e o fazendo como o novo padrão de processo, a forma de trabalhar mais eficiente, mas consciente, mais consciente.
 
 
 # Repetições e aprimoramento
