@@ -20,6 +20,11 @@ Isso definitivamente é um livro dentro de um livro, assim como tudo na vida.
 
 Acho que esse livro é um dos mais difíceis de se escrever, não pela nova forma de interação, mas pela rotina de buscar algo mais para compartilhar. Lebrar de compartilhar o belo de nós sempre que possível.
 
+Commit 100 mais foco na organização.
+Clean the words on some digital pages.
+
+Remember to erase. Remember to delete me when you finish it, ok?
+
 # Simple Notes
 
 Não sei se vale a pena escrever para as massas sobre o número 17...
