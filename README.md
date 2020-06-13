@@ -228,6 +228,8 @@ A ideia de originalidade está ligada a individualidade, na negação da inspira
 
 Dizia o poeta "Como ninguém, viajando por terras conhecidas, pode descobrir o desconhecido; então, a partir do conhecimento já adquirido, o homem não poderia adquirir mais. Então existe o Gênio Poético." negando a relação entre as coisas, o gênio poético de fato pode ser o mais próximo do original. Mas nossa percepção do Gênio se dá pelo aprendizado entre as relações da vida, ou mais, o gênio é transformado pelas relações humanas e naturais. De fato a ideia da originalidade está ligada a individualidade, ou a criatividade e individualidade se mesclam através do gênio criativo, mas quem é o gênio criativo sem as associações? Dentro há uma força maior e ninguém pode negar, a ciência se cala, os herméticos se calam, os magos fixam os olhos, os maiores dos poetas cerram a boca.
 
+Mas Blake usa da dissolver e recompor quando recria os ditos populares. Assim ele joga luz partindo de um princípio pré existente que são os ditados de sua época. Curioso que ao fazer isso, ele expande a mente indo na direção contrária das massas de sua época, porém, fazendo uso de suas sínteses, recria ideias, revelando (velando de novo) o dito popular. Ele faz uma síntese do inferno, então a dissolução recomeça quando seus poemas chegam a nós e os futuros poetas com uma coragem Blakiana sem saber, refazem seus passos. A síntese máxima seria uma abstração inteligível?
+
 
 # Hot and Cold - expandir e contrair
 
