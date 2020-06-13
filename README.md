@@ -307,13 +307,15 @@ Pela repetição de ataques selvagens o homem aprende a se defender,
 
 por se defender de ataques selvagens, ele se aprimora e cria armas,
 
-por criar armas, se convence que pode demoniar os animais,
+por criar armas, se convence que pode dominar os animais,
 
 e pela repetição de dominação dos animais, sistematiza a dominação,
 
 por repetir a sistematização, precisa expandir sua dominação,
 
-e de tanto expandir sua dominação, se perde.
+e de tanto expandir sua dominação, se perde
+
+e é dominado pela corrente-força oposta. O diabo de Newton.
 
 
 # real time analisys
