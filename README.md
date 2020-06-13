@@ -261,7 +261,7 @@ Essa lembrança é só minha? Nostalgia fantasiada
 
 provoca um alívio descontinuado ainda.
 
-Pra dar seguimentos ao fluxo do rio.
+Para dar seguimento ao fluxo do rio.
 
 Continue. Continue empurrando pedras.
 
