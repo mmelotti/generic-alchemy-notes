@@ -222,9 +222,12 @@ Planos de jogos customizados com hospedagem. Ano de hospedagem valor X, exemplos
 
 The idea of what you have and what do you want. O que você planeja versus o que você já e ou tem que ajuda no caminho. Air and Earth. Toughts and realization. Documents and the software. Descriptions and bugs solving. Description for new features. Documentação para trabalhar em acertos e novas features. The old description and the new documentation. Lost papers and topics organization on the cloud or files.
 
-# a
+# Originalidade... e a busca
 
-A ideia de originalidade está ligada a individualidade, na negação da inspiração pelo ambiente e ações das quais faz parte, parte do principio de um isolamento inexistente que nega a ligação que há entre cada um dos objetos com que cruzamos na vida, como se fossem coisas tão diferentes de nós que sua mensagem não chega a nos tocar em algum nível, ou em nível da qual me considero tão superior que suponho que aquilo nunca me atinja, de nenhum jeito possível, supóe que apenas pela inspiração como um criação totalmente espontâneia que, então, não deve ter um modelo pré estabelecido e próximo do caos que as coisas são criadas.. originais....
+A ideia de originalidade está ligada a individualidade, na negação da inspiração pelo ambiente e ações das quais faz parte, parte do principio de um isolamento inexistente que nega a ligação que há entre cada um dos objetos com que cruzamos na vida, como se fossem coisas tão diferentes de nós que sua mensagem não chega a nos tocar em algum nível, ou em nível da qual me considero tão superior que suponho que aquilo nunca me atinja, de nenhum jeito possível. Supõe que apenas pela inspiração como um criação totalmente espontâneia que, então, não deve ter um modelo pré estabelecido e próximo do caos que as coisas são criadas.. originais....
+
+Dizia o poeta "Como ninguém, viajando por terras conhecidas, pode descobrir o desconhecido; então, a partir do conhecimento já adquirido, o homem não poderia adquirir mais. Então existe o Gênio Poético." negando a relação entre as coisas, o gênio poético de fato pode ser o mais próximo do original. Mas nossa percepção do Gênio se dá pelo aprendizado entre as relações da vida, ou mais, o gênio é transformado pelas relações humanas e naturais. De fato a ideia da originalidade está ligada a individualidade, ou a criatividade e individualidade se mesclam através do gênio criativo, mas quem é o gênio criativo sem as associações? Dentro há uma força maior e ninguém pode negar, a ciência se cala, os herméticos se calam, os magos fixam os olhos, os maiores dos poetas cerram a boca.
+
 
 # Hot and Cold - expandir e contrair
 
