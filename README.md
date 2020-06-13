@@ -340,7 +340,7 @@ Ele já fez muito mal até aqui, as pessoas sabem disso,
 
 Mas muitas estão sendo levadas em uma corrente, há uma grande força nessa corrente, ela precisa ser analisada.
 
-Essa corrente atualmente parece ser uma corrente de ódio. De orgulho, de ego, do indivíduo acima de tudo, o resto todo por baixo sempre que der. É uma aberração que ele ainda esteja no poder. Parece que já não há o que perder. Mas nas verdade já estamos perdendo a luta que todos paíse estão combatendo, essa pandemia. Essa corrente não parece de paz, mas também parece uma corrente que atua um pouco na superfície, pois se quebra um argumento de fascista muito fácil, é por isso que eles
+Essa corrente atualmente parece ser uma corrente de ódio. De orgulho, de ego, do indivíduo acima de tudo, o resto todo por baixo sempre que der. É uma aberração que ele ainda esteja no poder. Parece que já não há o que perder. Mas nas verdade já estamos perdendo a luta que todos paíse estão combatendo, essa pandemia. Essa corrente não parece de paz, mas também parece uma corrente que atua um pouco na superfície, pois se quebra um argumento de fascista muito fácil, é por isso que eles odeiam a educação e a ciência, pois elas são o fato que comprova sua ignorância.
 
 
 
