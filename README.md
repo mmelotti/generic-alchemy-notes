@@ -25,6 +25,37 @@ Clean the words on some digital pages.
 
 Remember to erase. Remember to delete me when you finish it, ok?
 
+# PROJECT connect - crossing worlds
+
+MR ROBOT ++ blake
+
+BLAKE, como a dupla personalidade é o céu e o inferno e se complementam
+... a parte do que existe um em outro, ultimo episodio 3 temporada...roda gigante
+
+como incialmente um representa o mal, o outro o bem, mas as coisas vão se mesclando com o tempo...
+
+casamento do céu e o inferno,
+
+JUNG DO CONSCIENTE E INCONSCIENTE, que se integram depois que se aceitam,
+
+O esteriotipo do hacker, age nas sombras, como ninjas, protegendo 
+
+black parade a terceira temporada de MR robot, o luto, como Elliot tenta proteger os mais fracos, os que precisam, os beaten, essa vontade combater que há na musica também transborda o seriado, principalmente essa parte
+
+MR ROBOT ++ ninjas 
+
+
+INTELIGENCIA I.A.
+
+Colaboração, 
+
+Mescla na cultura, analise de WestWorld.... os code makers.....
+
+Como já estamos atualmente, pesquisar novas descobertas.... Deep learning and others....
+
+
+
+
 # Simple Notes
 
 Não sei se vale a pena escrever para as massas sobre o número 17...
