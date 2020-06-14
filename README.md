@@ -93,6 +93,26 @@ TRUMP, AVICI, DAI....ANTIFA TERRORIST.... UNIÃO,,,, VIDAS IMPORTAM BLACK LIVES 
 O OLHO DO SOL
 
 
+# layers, camadas by commit
+
+1 - camada rascunho
+
+2 - camada teste
+
+3 - camada ínicio
+
+4 - camada teste estrutural
+
+5 - camada organização
+
+6 - camada equilibrio
+
+7 - camada estruturar o equilibrio
+
+8 - camada assimilar para renovar
+
+9 - camada aprimoramento
+
 # TEMP
 CRIAR PASTA ***
 
