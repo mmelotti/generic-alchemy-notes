@@ -23,6 +23,8 @@ Acho que esse livro é um dos mais difíceis de se escrever, não pela nova form
 Commit 100 mais foco na organização.
 Clean the words on some digital pages.
 
+O tempo é importante. Mas lembramos de ter calma.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
