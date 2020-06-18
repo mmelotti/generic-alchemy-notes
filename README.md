@@ -29,7 +29,7 @@ Tem outra coisa que não volta atrás: um commit bem feito.
 
 Se hoje um tem lenha, e porque se ganhou a lenha, lá atrás alguém disse que era uma boa coisa.
 
-Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer.
+Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer. Nossos acentrais lutaram pelo fogo e pelo calor. Pense nisso.
 
 Remember to erase. Remember to delete me when you finish it, ok?
 
