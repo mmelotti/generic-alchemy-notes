@@ -25,6 +25,8 @@ Clean the words on some digital pages.
 
 O tempo é importante. Mas lembramos de ter calma.
 
+Tem outra coisa que não volta atrás: um commit bem feito.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
