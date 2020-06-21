@@ -66,6 +66,11 @@ Como já estamos atualmente, pesquisar novas descobertas.... Deep learning and o
 
 # Simple Notes
 
+Organização em branch:
+- Mixed drafts (vindo da multiplicação) - temp
+- working drafts (remover excesso) -> ++level by category
+- root -> ++level by category (apendice, midia, summary by category and commits)
+
 Não sei se vale a pena escrever para as massas sobre o número 17...
 
 76 commits nesse livro, 77 com esse. Falar do 17 impossível fugir do tarot. O número 17 só é o que é devido ao 7 + 10. Acho que só estou procurando uma desculpa pra falar logo disso.
