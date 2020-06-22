@@ -89,3 +89,31 @@ Esse é um texto hermético básico, precisa de séria consideração por parte 
 Vazio pode ser alcançado com práticas frequentes de técnicas de relaxamento que visam o autoconhecimento, tal como a meditação, yoga, e outras técnicas originalmente orientais.
 
 Sobre o Manuscrito do Vazio
+
+
+
+-
+Seus críticos falam muito que ele não levava em conta o contexto (local, social, político) para as maiores generalizações e afirmações de suas obras, quando, de fato, são os próprios críticos que não levam em conta o contexto da vivência de McLuhan ao interpretarem suas obras - esperando que ele se tornasse o profeta das mídias com ‘todas as soluções’, como o próprio crítico, H. M. Enzensberger, diz: ‘o primeiro a realizar uma mística das mídias, na qual todos os problemas políticos se evaporam como névoa’. Ora, esperavam eles que além de oferecer uma nova visão e abordagem das mídias dentro do escopo do espaço visual, McLuhan os ofereceria também já a caixa acústica holográfica sobre as mídias, onde tudo e qualquer coisa pode ser encontrado em todo o lugar? 
+Quem tem olhos para ler, que leia! E leia ainda algumas dezenas de vezes para que não fique em proposições rasas previamente definidas como títulos. Mas, de fato, se eles procurassem bem, poderiam acabar encontrando um espaço acústico em suas obras. A névoa citada por Enzensberger, ‘aquela névoa azul com que ele ilude os seus discípulos’, faz exatamente o que deveria, e ao invés de ‘iludir os seus discípulos’, apenas afasta as mentes visuais e rasas que ficam confusas quando dentro do espaço acústico que suas obras podem oferecer.
+
+
+# MCLUHAN CRITICS 
+
+FROM WIKI - MCLUHAN E O SUPER ARQUECIMENTO REVERSO
+ESPAÇO VISUAL E ACUSTICO = HOLOGRAFICOOO
+
+The Global Village: Transformations in World Life and Media in the 21st Century (1989)[editar | editar código-fonte]
+Livro póstumo de Marshall McLuhan. Redigido em co-autoria com Bruce R. Powers fora publicado homonimamente 9 anos após a sua morte.
+
+A essência do conceito que permeia esta obra se baseia na mudança de percepção de mundo dos usuários dessas novas tecnologias. Para os autores o desenvolvimento dessas tecnologias estariam transpondo as culturas mundiais para uma unidade de ambiência, que chamou vila global.[23] Assim, a obra apresenta a última revisão do autor de seus estudos trazendo consigo a mais recente abordagem visionária feita por ele com o conceito de vila global.
+
+Contribuinte basilar no fornecimento de uma base teórica sólida para a compreensão das implicações culturais dos avanços tecnológicos e suas implicações a partir do surgimento de uma rede eletrônica mundial.
+
+A primeira edição de “Aldeia Global” data de meados da década de 1960, e pode ser considerada percursora da narrativa globalizante. Sua última ponderação sobre o tema se concretiza como um dos mais importantes de seus trabalhos. Nele, McLuhan elabora amplamente sua concepção de 'Espaço Acústico', juntamente com Burke, promovendo, diante disso, uma aprofundada crítica em cima do padrão ao qual caminhava o modelo de comunicação do século XX. 
+
+A partir disso, desenvolve os conceitos de Espaço visual e Espaço acústico. McLuhan faz uma distinção entre a visão de mundo existente no Espaço Visual (modelo linear, quantitativo, clássico e geométrico) e no Espaço Acústico (modelo qualitativo com uma topologia paradoxal complexa). "Espaço Acústico tem o caráter básico de uma esfera cujo foco ou centro está, simultaneamente, em todos os lugares e cuja margem está em lugar nenhum".[24]
+
+Para ilustrar os dois espaços ele aponta o modelo linear (visual) e seu modo quantitativo de percepção, como uma característica do mundo ocidental. Enquanto que, o modelo multifacetado(acústico) e seu modo qualitativo de percepção, é tratado como característica do mundo oriental. Na perspectiva que o homem ocidental não possuiria a capacidade do oriental de transitar de um comportamento a outro sem um custo à sua saúde mental.
+ Em defesa dessa concepção, ele argumenta que: De um lado, a mídia impressa adota e preserva o espaço visual; enquanto de outro, meios como a televisão e as tecnologias de database (satéiletes e internet), impulsionam seus usuários para um universo mais dinâmico, multicentralizado no que seria o Espaço Acústico. Alertando, diante disso, que essa movimentação muito possivelmente não aconteceria suavemente/automaticamente, mas que seria um processo consciente. O autor aponta que, com o advento da aldeia global, enquanto resultado do worldwide communication, essas duas visões de mundo co-existiriam e precisariam ser entendidas simultaneamente, e não a partir de um ponto de vista fixo. A transição do Espaço Visual para o Acústico não foi automática com o advento da rede mundial, mas teria que ser um projeto deliberado.
+
+ O "ambiente universal de fluxo eletrônico simultâneo"[25], inerentemente, favorece o Espaço Acústico. Ainda sim, nós somos retidos por hábitos de aderir a um ponto de vista fixo. Não existem barreiras para o som, nós ouvimos de todas as direções de uma só vez. Ainda sim, o Espaço Acústico e o Visual são inseparáveis. O intervalo de ressonância é a fronteira invisível entre eles. 
