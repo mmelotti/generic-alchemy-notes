@@ -31,6 +31,8 @@ Ainda assim, tem hora que da bosta mesmo.
 
 Meu eu do passado escreve para me lembrar que há janelas e portas.
 
+É preciso saber com quem pode comunicar-se, assim coordena-se e coopera-se.
+
 Se hoje um tem lenha, e porque se ganhou a lenha, lá atrás alguém disse que era uma boa coisa.
 
 Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer. Nossos acentrais lutaram pelo fogo e pelo calor. Pense nisso.
