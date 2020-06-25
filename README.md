@@ -27,6 +27,8 @@ O tempo é importante. Mas lembramos de ter calma.
 
 Tem outra coisa que não volta atrás: um commit bem feito.
 
+Ainda assim, tem hora que da bosta mesmo.
+
 Se hoje um tem lenha, e porque se ganhou a lenha, lá atrás alguém disse que era uma boa coisa.
 
 Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer. Nossos acentrais lutaram pelo fogo e pelo calor. Pense nisso.
