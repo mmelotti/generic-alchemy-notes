@@ -86,26 +86,15 @@ Todo esse temp vai ter que sumir, se organizar, pra não virar caos. Temp é tem
 Não esquecer a verdade, honestidade acima de tudo sempre que possível falar.
 
 
-GS REUNION 04-05
+APLICAÇÃO PRÁTICA DO CONCEITO DE POLOS
 
-LEVEL COM CLASSE ++
+Sabedoria e ignorância,
+concorda com nazismo + considera nazismo de esquerda ENTÃO põe a culpa na esquerda e por associação, acreditam ser nazista 
 
-MECÂNICAS DE TRANSIÇÃO (EVOLUÇÃO OU CRESCIMENTO)
-- Relacionar Atributos (max 6), formato de estrela por exmeplo
+Acima o nível de ignorância é muito alto, pode se relacionar o crescimento desse novo tipo de fascismo talvez, mas se o fascismo for consideramo como a máxima ignorância..... o que talvez até seja nos dias atuais. 
 
 
-GS REUNION 20 05
-
-back
-- publicar aventura, missoes, condições, dialogos se houve
-- replicar os dados....
-
-front
-- Continuar o curso
-- pensar se há como haver integração com GS
-- fazer um build em android
-
-EXPOSED AND FIGHTS 31-05
+EXPOSED AND FIGHTS 31-05 ANO DO SOL
 
 TRUMP, AVICI, DAI....ANTIFA TERRORIST.... UNIÃO,,,, VIDAS IMPORTAM BLACK LIVES MATTER .... CONFUSÃO DEMOCRACIA.... TIMES ARE CHANGING, REVOLTS, TRUE.... THE YEAR O F THE SUN....
 
@@ -132,34 +121,6 @@ O OLHO DO SOL
 
 9 - camada aprimoramento
 
-# TEMP
-CRIAR PASTA ***
-
-Dividir a mensagem em 2 partes. Uma com foco na palavra, outra com foco na arte.
-
-H está passando por uma transformação. Acho que na verdade sempre foi que está em constante transformação, mudança, está na essência
-as mudanças dos B...
-
-Ref de BIO
-
-REF de  desafios....
-
-REF de renascimento, criação e CONFLITO
-
-Citar os amigos, agradecimentos. E vai continuar, qUe venha a proxima fase, e que plantem cada vez mais sementes boas....
-
-Pelo local com poucos ouvidos para o novo, fizemos muitas amizades e relações que vão durar para a vida, pessoas talentosas fazendo arte da mais bela....
-
-E ESSE, PARTE 2
-H esse vídeo está pra sair faz muito tempo, mas veio em boa hora, saudades boas de todos,
-
-
-APLICAÇÃO PRÁTICA DO CONCEITO DE POLOS
-
-Sabedoria e ignorância,
-concorda com nazismo + considera nazismo de esquerda ENTÃO põe a culpa na esquerda e por associação, acreditam ser nazista 
-
-Acima o nível de ignorância é muito alto, pode se relacionar o crescimento desse novo tipo de fascismo talvez, mas se o fascismo for consideramo como a máxima ignorância..... o que talvez até seja nos dias atuais. 
 
 
 # temp IA
