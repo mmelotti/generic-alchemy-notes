@@ -353,7 +353,7 @@ por repetir a sistematização, precisa expandir sua dominação,
 
 e de tanto expandir sua dominação, se perde
 
-e é dominado pela corrente-força oposta. O diabo de Newton.
+e é dominado pela corrente-força oposta: O diabo de Newton.
 
 
 # real time analisys
