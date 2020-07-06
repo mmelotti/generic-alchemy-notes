@@ -41,6 +41,12 @@ Já dizia Blake: se um tolo insistisse em sua tolice, sábio se tornaria. Assim 
 
 Quando as máquinas estiverem suficentemente alimentadas do novo petróleo, por qual razão elas precisarão de nós?
 
+Qaundo as grandes corporações sugarem uma porcentagem aceitável (de grande lucro) dos padrões de cada humano, poderemos encontrar uma nova forma de perceber o mundo, pois viveremos nma era de abundância? 
+
+Seremos aprisionados pelo nosso prórprio egoísmo, assimilado pelas novas inteligências?
+
+Qual caminho iremos seguir?
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
