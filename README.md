@@ -39,6 +39,8 @@ Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer
 
 Já dizia Blake: se um tolo insistisse em sua tolice, sábio se tornaria. Assim como dando uma volta entre os polos de sabedoria e tolice.
 
+Quando as máquinas estiverem suficentemente alimentadas do novo petróleo, por qual razão elas precisarão de nós?
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
