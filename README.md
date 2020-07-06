@@ -41,7 +41,9 @@ Já dizia Blake: se um tolo insistisse em sua tolice, sábio se tornaria. Assim 
 
 Quando as máquinas estiverem suficentemente alimentadas do novo petróleo, por qual razão elas precisarão de nós?
 
-Qaundo as grandes corporações sugarem uma porcentagem aceitável (de grande lucro) dos padrões de cada humano, poderemos encontrar uma nova forma de perceber o mundo, pois viveremos nma era de abundância? 
+Qaundo as grandes corporações sugarem uma porcentagem aceitável (de grande lucro) dos padrões de cada humano, poderemos encontrar uma nova forma de perceber o mundo, pois viveremos numa era de abundância? 
+
+Poderemos cooperar para criar uma sociedade mais tolerante, eliminando a fome e permitindo o uso da tecnologia médica para os menos favorecidos?
 
 Seremos aprisionados pelo nosso prórprio egoísmo, assimilado pelas novas inteligências?
 
