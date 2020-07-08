@@ -152,7 +152,7 @@ O OLHO DO SOL
 
 
 
-# temp IA
+# About IA
 
 A renda básica virá, poderemos pensar numa coexistencia pacifica entre nós e as máquinas (governo)
 
@@ -195,6 +195,8 @@ Os Estados Unidos continuam lutando para implementar proteções apropriadas à 
 Insights e conhecimentos de um livro X....
 
 
+Titulos - temas: CHINA VS EUA, SEU EMPREGO NÃO EXISTIRÁ MAIS ao menos do jeito que você conhece, as eras da IA, O novo petróleo (ou relembrando a construção do mundo por nós)
+MCLUahn and Kirshnamurti + Blake e os opostos em midia e tecnologia....
 
 
 # SKILLS (API - ENGINE)
