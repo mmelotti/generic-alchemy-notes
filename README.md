@@ -20,7 +20,9 @@ Isso definitivamente é um livro dentro de um livro, assim como tudo na vida.
 
 Cada coisa é uma coisa dentro de outra coisa.
 
-Acho que esse livro é um dos mais difíceis de se escrever, não pela nova forma de interação, mas pela rotina de buscar algo mais para compartilhar. Lebrar de compartilhar o belo de nós sempre que possível.
+Acho que esse livro é um dos mais difíceis de se escrever, não pela nova forma de interação, mas pela rotina de buscar algo mais para compartilhar. 
+
+Lebrar de compartilhar o belo de nós sempre que possível.
 
 É importante to clean the words on some digital pages.
 
