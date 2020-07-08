@@ -44,6 +44,16 @@ Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer
 
 Já dizia Blake: se um tolo insistisse em sua tolice, sábio se tornaria. Assim como dando uma volta entre os polos de sabedoria e tolice.
 
+Códigso e instruções estão ligados. O código é código apenas e para uma instrução, mas a quem instrui?
+
+Software é um elemental mais sublimado e o hardware mais denso. 
+
+O Software é a prática da mente, o hardware é a prática do corpo. 
+
+A evolução do software é a evolução dos processos mentais humanos e a evolução do hardware é a materização das potencialidades humanas do corpo. 
+
+Precisamos ver o cérebro e coração com mais cuidado, eles são aquelas coisas quase "apolares", que transitam entre uma linha e outras. Principalmente o coração.
+
 Quando as máquinas estiverem suficentemente alimentadas do novo petróleo, por qual razão elas precisarão de nós?
 
 Qaundo as grandes corporações sugarem uma porcentagem aceitável (de grande lucro) dos padrões de cada humano, poderemos encontrar uma nova forma de perceber o mundo, pois viveremos numa era de abundância? 
