@@ -2,7 +2,7 @@
 Generic Alchemy Notes
 
 
-This is a project that aims in transmutate lead in gold, but not fool's gold. If the effort is successful, we can take a small step towards world peace and awareness.
+"This is a project that aims in transmutate lead in gold, but not fool's gold."
 
 Peace, Mercuryo Mercurio.
 
