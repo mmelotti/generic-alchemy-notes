@@ -12,7 +12,7 @@ Logo as pessoas estarão escrevendo livros no github.
 
 Se já não o fazem, vai ver na verdade o nunca deixaram de fazer.
 
-Cada pedaço de código é uma parte de um libro da história do programador.
+Cada pedaço de código é uma parte do um livro da história do programador.
 
 Acho que esse negócio é um livro também.
 
