@@ -4,8 +4,6 @@ Generic Alchemy Notes
 
 "This is a project that aims in transmutate lead in gold, but not fool's gold."
 
-Peace, Mercuryo Mercurio.
-
 Os logs de alteração da coisa toda são muito importantes.
 
 Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações. Qual a sua história?
@@ -14,14 +12,19 @@ Logo as pessoas estarão escrevendo livros no github.
 
 Se já não o fazem, vai ver na verdade o nunca deixaram de fazer.
 
-Acho que esse negócio é um livro.
+Cada pedaço de código é uma parte de um libro da história do programador.
+
+Acho que esse negócio é um livro também.
 
 Isso definitivamente é um livro dentro de um livro, assim como tudo na vida.
 
+Cada coisa é uma coisa dentro de outra coisa.
+
 Acho que esse livro é um dos mais difíceis de se escrever, não pela nova forma de interação, mas pela rotina de buscar algo mais para compartilhar. Lebrar de compartilhar o belo de nós sempre que possível.
 
-Commit 100 mais foco na organização.
-Clean the words on some digital pages.
+É importante to clean the words on some digital pages.
+
+Jack Kerouac usando seu teclado mecânico no github.
 
 O tempo é importante. Mas lembramos de ter calma.
 
@@ -33,9 +36,11 @@ Meu eu do passado escreve para me lembrar que há janelas e portas.
 
 É preciso saber com quem pode comunicar-se, assim coordena-se e coopera-se.
 
-Se hoje um tem lenha, e porque se ganhou a lenha, lá atrás alguém disse que era uma boa coisa.
+Se hoje um tem lenha, é porque se ganhou a lenha, lá atrás alguém disse que era uma boa coisa.
 
-Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer. Nossos acentrais lutaram pelo fogo e pelo calor. Pense nisso.
+Mais que a lenha, pois a lenha é só o símbolo de uma conquista maior: proteger a nós e a quem amamos do frio.
+
+Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer. Nossos acentrais lutaram pelo fogo e pelo calor. 
 
 Já dizia Blake: se um tolo insistisse em sua tolice, sábio se tornaria. Assim como dando uma volta entre os polos de sabedoria e tolice.
 
