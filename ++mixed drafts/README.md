@@ -78,7 +78,7 @@ Ao criticar o “paradigma da palavra impressa”, termo essencialmente mcluhani
 
 - extensoes e amputacoes
 
- “com o advento da tecnologia elétrica, o homem prolongou, ou projetou para fora de si mesmo, um modelo vivo do próprio sistema nervoso central. Nesta medida, trata-se de um desenvolvimento que sugere uma auto-amputação desesperada e suicida [...]” (MCLUHAN, 1969, p. 61). E se morremos uma primeira vez pela tecnologia elétrica, ainda restam nossos simulacros digitais implorarem por uma segunda morte: “Quando acabarmos o serviço, apaga essa merda. Me apaga, tá?” (GIBSON, 2003, p. 126). E aqui a utopia da aldeia global encontra a distopia cyberpunk numa conclusão que nos leva a repensar a obra de McLuhan. 
+ “com o advento da tecnologia elétrica, o homem prolongou, ou projetou para fora de si mesmo, um modelo vivo do próprio sistema nervoso central. Nesta medida, trata-se de um desenvolvimento que sugere uma auto-amputação desesperada e suicida [...]” (MCLUHAN, 1969, p. 61). E se morremos uma primeira vez pela tecnologia elétrica, ainda restam nossos simulacros digitais implorarem por uma segunda morte: “Quando acabarmos o serviço, apaga essa merda. Me apaga, tá?” (GIBSON, 2003, p. 126). E aqui a utopia da aldeia global encontra a distopia cyberpunk numa conclusão que nos leva a repensar a obra de McLuhan. Mas repensar em que sentido? Entendo que morremos a cada nova adaptação e nascemos junto com o processo de assimilação de nossas projeções e extensões. Teremos uma segunda morte e nascimento na lendária Singularidade. 
 
 - too far too much, yet real
 
