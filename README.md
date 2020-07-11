@@ -50,6 +50,8 @@ Um pensamento impregna a imensidão. Pois tudo que se faz emana.
 
 Palavras e ações ecoam na eternidade.
 
+A palavra mal falada é o aborto de um bom pensamento.
+
 Códigos e instruções estão ligados. O código é código apenas e para uma instrução, mas a quem instrui?
 
 Software é um elemental mais sublimado e o hardware mais denso. 
