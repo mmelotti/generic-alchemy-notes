@@ -46,11 +46,15 @@ Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer
 
 Já dizia Blake: se um tolo insistisse em sua tolice, sábio se tornaria. Assim como dando uma volta entre os polos de sabedoria e tolice.
 
-Códigso e instruções estão ligados. O código é código apenas e para uma instrução, mas a quem instrui?
+Um pensamento impregna a imensidão. Pois tudo que se faz emana. 
+
+Palavras e ações ecoam na eternidade.
+
+Códigos e instruções estão ligados. O código é código apenas e para uma instrução, mas a quem instrui?
 
 Software é um elemental mais sublimado e o hardware mais denso. 
 
-O Software é a prática da mente, o hardware é a prática do corpo. 
+O software é a prática da mente, o hardware é a prática do corpo. 
 
 A evolução do software é a evolução dos processos mentais humanos e a evolução do hardware é a materização das potencialidades humanas do corpo. 
 
