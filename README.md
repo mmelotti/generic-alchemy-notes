@@ -60,11 +60,11 @@ O software é a prática da mente, o hardware é a prática do corpo.
 
 A evolução do software é a evolução dos processos mentais humanos e a evolução do hardware é a materização das potencialidades humanas do corpo. 
 
-Precisamos ver o cérebro e coração com mais cuidado, eles são aquelas coisas quase "apolares", que transitam entre uma linha e outra. Principalmente o coração.
+Precisamos ver o cérebro e coração com mais cuidado, eles são aquelas coisas quase "apolares", que transitam entre uma linha (borda) e outra. Principalmente o coração.
 
 Quando as máquinas estiverem suficentemente alimentadas do novo petróleo, por qual razão elas precisarão de nós?
 
-Qaundo as grandes corporações sugarem uma porcentagem aceitável (de grande lucro) dos padrões de cada humano, poderemos encontrar uma nova forma de perceber o mundo, pois viveremos numa era de abundância? 
+Quando as grandes corporações sugarem uma porcentagem aceitável (de grande lucro) dos padrões de cada humano, poderemos encontrar uma nova forma de perceber o mundo, pois viveremos numa era de abundância? 
 
 Poderemos cooperar para criar uma sociedade mais tolerante, eliminando a fome e permitindo o uso da tecnologia médica para os menos favorecidos?
 
