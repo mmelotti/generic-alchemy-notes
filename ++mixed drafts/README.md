@@ -149,6 +149,7 @@ A energia só descansa. Então em tudo há trocas de energias, às vezes visíve
 Antes da linguagem e das artes, o instinto prevalecia. Adormecemos-o um pouco quando estendemos cinco sentidos em direção ao infinito - buscando experiências virtuais que já estão em nós.
 
 
+------
 
 ASTRO QUESTÕES
 
@@ -162,6 +163,7 @@ Revolução da lua em torno da terra = ciclo lunar
 
 A lua tem muita influencia sobre as águas, marés, fluxos refluxos, instinto e junto com o sol, imaginação.
 
+------
 
 Mercúrio é mais misterioso que a Lua, poucos são aqueles que os conhecem em profundidade - e sabem que não sabem muito. As sondas mandadas para Mercúrio sempre deram muito trabalho e por vezes voltava com resultados insatisfatórios (se é que voltavam com algum resultado), assim como as pessoas que trabalharam para isso acontecer ainda não foram dignas para conhecê-lo em profundidade - o mais arisco e enganador dos astros irmãos. 
 
@@ -171,21 +173,19 @@ A Lua explicava para Terra que ainda é cedo para conhecer Mercúrio, que dê te
 
 Para quem não precisa de olhos para ver, sabe que em breve virão aqueles que Mercúrio considera dignos de representatividade e assim, lhe abrirão muitos de seus mistérios - como tem ocorrido com alguns poucos filósofos de valor. A Lua espera que haja revelações (e talvez, novas revoluções) de Mercúrio ainda em tempo útil, para que possamos replicar sua sabedoria oculta na Terra a fim de curá-la.
 
-
 ------
 
 Nada está parado, só há uma única possível inércia. Todo o resto é inércia superficial (não inércia) em partes fragmentadas - visto de olhos microscópios, tudo dança, tudo vibra. TUDO GIRA EM TORNO DE TUDO - ou simplesmente, tudo gira. A definição do ponto observador é a diferença principal.
 
 Você se torna aquilo que (quer) absorver, depois de observar. O Jogo dos Espelhos! 
 
+SISTEMA BALANCEADO (SB) - como uma banda, empresa, grupos organizados
 
+Um SB é tão fraco quanto seu elemento mais fraco - pode ser mais negativo quanto seu elemento mais negativo. É uma tendência, mas não tautologia atemporal. Depende de como lidamos e aproveitamos melhor cada talento - e cada um deve mostrar o seu na hora certa e abrir os olhos para quem não quer ver, de forma a buscar ENTENDIMENTO, melhor COMUNICAÇÃO entre as partes. 
 
-SISTEMA BALANCEADO - SB - like band, company, groups organized
-SB é tão fraco quanto seu elementos mais fraco - pode ser mais negativo quanto seu elemento mais negativo. É uma tendência, mas não tautologia atemporal. Depende de como lidamos e aproveitamos melhor cada talento - e cada um deve mostrar o seu na hora certa e abrir os olhos para quem não quer ver, de forma a buscar ENTENDIMENTO, melhor COMUNICAÇÃO entre as partes. 
+SB com com um "elemento maçã podre do cesto" pode dividir um SB, de forma que ele não fique mais balanceado. Fragmentar de forma a dificultar a união entre as partes, divisão para implodir ou vaporizar conexões que levarão à queda de seus prédios altos abstratos de ideias, deixando dúvidas e medos que impedem de prosseguir. Perseverança é necessário - ‘lê, lê, relê, refaz, repensa, melhora, lê, relê, refaz…’
 
-SB com elemento X com três negativos, ‘ - - - ‘ , (quase uma analogia a maçã podre do cesto) pode dividir SB, de forma que ele não fique mais balanceado - fragmentar de forma a dificultar a união entre as partes, divisão para implodir ou vaporizar conexões que levarão à queda de seus prédios altos abstratos de ideias, deixando dúvidas e medos que impedem de prosseguir. Perseverança é necessário - ‘lê, lê, relê, refaz, repensa, melhora, lê, relê, refaz…’
-
-SB é tão forte quanto sua parte mais forte - Y positivo ‘ + + + ‘, uma tendência de união e ativação das melhores partes - não necessariamente todas - em cada um dos elementos do sistema. 
+SB é tão forte quanto sua parte mais forte, uma tendência de união e ativação das melhores partes (mas não necessariamente todas) em cada um dos elementos do sistema. 
 
 
 
