@@ -208,7 +208,7 @@ apollo e hermes trabalhando juntos para o caminho do meio.
 
 conhece a ti mesmo - encontrará a sujeira do mundo - 
 
-2 PRINCIPIO
+2 PRINCIPIOS
 
 sol, lua, e terra < físico +++, macro
 
@@ -244,44 +244,16 @@ Hermes é agente quando preciso, reconhece e discute a lei. Toma (dá) puniçõe
 
 Por isso não importa o polo de começo, é preciso equilibrar-se entre eles, a luz e a sombra, o pai dá lugar ao filho, as coisas mudam de lugar, um filho pode agir mais que outro - sombra ou luz, hermes ou phebo - Assim o equilíbrio é encontrado nas obras lunares e solares. A lua equilibrando acertando sua passividade, e o sol diminuindo sua atividade.
 
-4
+4 CONCLUSÕES
 
-LEI, CAUSA E EFEITO --- NEWTON, Macro+Micro, físico, sutil, Not Hermetic
-Toda ação tem uma reação "o universo se divide em dois", é criada a sombra
-da experiência de cada ação, ação tornam-se processos, processos tornam-se
-leis depois de endurecer. EFEITO A LONGO PRAZO - ÉPOCAS
+LEI, CAUSA E EFEITO --- NEWTON, Macro+Micro, físico, sutil, Not Hermetic.. Toda ação tem uma reação "o universo se divide em dois", é criada a sombra da experiência de cada ação, ação tornam-se processos, processos tornam-se leis depois de endurecer. EFEITO A LONGO PRAZO - ÉPOCAS
 
-Depois que a lei endurece no seu endurecer, a água fura a pedra, o mercúrio
-penetra na própria lei e há uma sutil inversão de lugares, pois o mercúrio
-tem na natureza a passagem, enquanto que a rocha tem a permanência ==
-expulsa o mercúrio até receber um novo mercurio digno - água mole, pedra
-dura, tanto bate até que fura
+Depois que a lei endurece no seu endurecer, a água fura a pedra, o mercúrio penetra na própria lei e há uma sutil inversão de lugares, pois o mercúrio tem na natureza a passagem, enquanto que a rocha tem a permanência == expulsa o mercúrio até receber um novo mercurio digno - água mole, pedra dura, tanto bate até que fura.
 
-Os efeitos de aplicar a ação (-causa) em uma lei podem gerar outras causas - e
-provavelmente o farão - e para cada uma dessas causas, sua lei correspondente,
-e o efeito como resultado... nesse caso podemos perceber que a única variável
-é a ação-causa, mãe de todos os efeitos, elemento passivo e passível
-de mudança, pois antes da causa existe no vazio todas as possibilidades!
-Já que ainda não há a lei.
+Os efeitos de aplicar a ação (causa) em uma lei podem gerar outras causas - e provavelmente o farão - e para cada uma dessas causas, sua lei correspondente, e o efeito como resultado... nesse caso podemos perceber que a única variável é a ação-causa, mãe de todos os efeitos, elemento passivo e passível de mudança, pois antes da causa existe no vazio todas as possibilidades! Já que ainda não há a lei.
 
-Na visão lunar, a ação-lunar age sobre a lei é solar.
-A lua integra-se ao sol! O nigredo se queima e integra no enxofre!
-Morre, e as cinzas são reutilizadas - nada se perde...
-evolui evolui... vai e volta, sobe e desce, movimento
+Para quem busca a luz sem entender que o tempo é uno, e sobre ele estamos nos dividindo e recompondo todo o tempo, sofre fisicamente de algum tipo de inércia e nostalgia, o que o faz sempre lembrar do passado (como tendência), assim, não unifica teorias, pois fragmentado é sua visão do tempo, que assim como as teorias, deve ser visto como a mesma coisa. História é o que se mostra dividido, o tempo é que engloba os seus pedaços! Receptáculo abstrato.
 
-Para a visão solar na ação, naturalmente ativa, a lei é a Lua.
-O sol age sobre a regência mais caótica da lua.
-Se integra, faz a lua brilhar.
-A lei é menos importante que o amor-entendimento....
-inverte o agente de mudança, velho novo, ativo passivo....etc....
-
-Para quem busca a luz sem entender que o tempo é uno, e sobre ele
-estamos nos dividindo e recompondo todo o tempo,
-sofre fisicamente de algum tipo de inércia, o que o faz sempre
-lembrar do passado - tendência só, assim, não unifica teorias, pois fragmentado
-é sua visão do tempo, que assim como as teorias, deve ser visto
-como a mesma coisa... História é o que se mostra dividido, o tempo é que engloba
-os seus pedaços! Receptáculo abstrato.
-
+-----------
 
 
