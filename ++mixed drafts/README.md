@@ -196,7 +196,7 @@ Tratado sobre Consciência e Alquimia - SO MOTE IT BE
 
 Do Tempo sobre a História...Time over History
 
-1
+1 BASE
 
 nigredo, albedo, rubedo < sutil +++, abstrato, macro +++ == hermético
 
@@ -208,7 +208,7 @@ apollo e hermes trabalhando juntos para o caminho do meio.
 
 conhece a ti mesmo - encontrará a sujeira do mundo - 
 
-2
+2 PRINCIPIO
 
 sol, lua, e terra < físico +++, macro
 
@@ -220,51 +220,32 @@ Caduceu, caído do céus. Senhor das encruzilhadas, age com Exu, laroiê..
 
 O que é lunar, ou seja, a terra a princípio, recebe a matéria da ação (sol) e purifica-se, virando uma terra cada vez mais transformada dependendo da ação direcionada --- por isso cultos ao sol que acreditam poder mudar o rumo através da vontade do Sol (ou mudar as próprias vontades seguindo o Sol) - espelho da nossa própria vontade, de querer mudar nos, sempre.
 
-3
+3 RELAÇÕES
 
 sal, enxofre, mercúrio < físico -, sutil +, micro +++ = hermético
+
 - um princípio - causa - é aplicado sobre uma lei, sobra cinzas, queima 7x o sal
+
 vontade-ação aplicada sobre-entre um meio (mercúrio-lei) == dual (serve e não)
-a ação implica no sucesso e fracasso, vários fracassos para poucos sucessos...
-dos fracassos aprendemos para ter sucesso e não falhar na ação aplicada...
-agindo mediante a lei...
-o mercúrio aqui carrega a lei pois carrega a geração, a genética,
-ele é o meio pelo qual o enxofre-fogo-elétrico age, que vai gerar
-a divisão do universo em dois, fracasso e sucesso, em escalas diferentes para cada.
 
-Todas as trindades são a mesma coisa, vendo de espaço-ângulos-tempos diferentes
-pois a causa age sobre uma lei e gera um efeito, a semente de angu não vai
-dar em uma maçã. Quando agimos empregando o caos como causa...
-Quando se chega ao conhecimento da energia do caos e da ordem, entende-se
-que os opostos apenas se diferem em grau, sendo "a mesma coisa".
+a ação implica no sucesso e fracasso, vários fracassos para poucos sucessos...dos fracassos aprendemos para ter sucesso e não falhar na ação aplicada...agindo mediante a lei, o mercúrio aqui carrega a lei pois carrega a geração, a genética, ele é o meio pelo qual o enxofre-fogo-elétrico age, que vai gerar a divisão do universo em dois, fracasso e  sucesso, em escalas diferentes para cada.
 
-""Caos - causa, uso do caos agindo sobre a vontade-lei, talvez ao vento ou contra
-todos os ventos! Para gerar algo novo, caótico, original, caso haja
-existência para tais conceitos nesse universo. Hermes-loki ou outro
-trickster subversivo aparenta agir pelo egoísmo mas suas ações
-refletem em escala global sempre resultado em grandes mudanças...""
+Todas as trindades são a mesma coisa, vendo de espaço-ângulos-tempos diferentes, pois a causa age sobre uma lei e gera um efeito, a semente de angu não vai dar em uma maçã. 
 
-Como Apollo é o princípio ativo, agindo sendo primeiro o albedo (espelhado
-da fonte ?) que vira o rubedo.... transforma-se virando rígido, lei,
-nesse momento há necessidade de uma nova vontade, num universo dual,
-a lei e a causa invertem de lugar quando necessário!
+Quando se chega ao conhecimento da energia do caos e da ordem, entende-se que os opostos apenas se diferem em grau, sendo "a mesma coisa".
 
-O princípio da lei era de Apolo, mas se divide com mercúrio-hermes,
-Mercúrio faz a mudança quando necessário, Explica a Apolo, os dois lados
-são contidos para que haja outra vez a harmonia, como no presente da tartaruga
-para apaziguar Apollo... pois até ele age sobre a lei de sua vontade (enxofre)!!
+""Caos - causa, uso do caos agindo sobre a vontade-lei, talvez ao vento ou contra todos os ventos! Para gerar algo novo, caótico, original, caso haja existência para tais conceitos nesse universo. Hermes-loki ou outro trickster subversivo aparenta agir pelo egoísmo mas suas ações refletem em escala global sempre resultado em grandes mudanças..
 
-Hermes é agente quando preciso, reconhece e discute a lei. Toma punições ou não.
-É tudo de acordo com a lei regente, e o quanto se pode usar do nigredo da lei
-quando o nigredo está ativo. Mercurius-Thoth !!! Seth+Horus
+Como Apollo é o princípio ativo, agindo sendo primeiro o albedo (espelhado da fonte ?) que vira o rubedo.... transforma-se virando rígido, lei, nesse momento há necessidade de uma nova vontade, num universo dual, a lei e a causa invertem de lugar quando necessário!
 
-Por isso não importa o polo de começo, é preciso equilibrar-se entre eles,
-a luz e a sombra, o pai dá lugar ao filho, as coisas mudam de lugar,
-um filho pode agir mais que outro - sombra ou luz, hermes ou phebo -
-Assim o equilíbrio é encontrado nas obras lunares e solares.
-A lua equilibrando acertando sua passividade, e o sol diminuindo sua atividade.
+O princípio da lei era de Apolo, mas se divide com mercúrio-hermes. Mercúrio faz a mudança quando necessário, Explica a Apolo, os dois lados são contidos para que haja outra vez a harmonia, como no presente da tartaruga para apaziguar Apollo... pois até ele age sobre a lei de sua vontade (enxofre)!!
+
+Hermes é agente quando preciso, reconhece e discute a lei. Toma (dá) punições ou não. É tudo de acordo com a lei regente, e o quanto se pode usar do nigredo da lei quando o nigredo está ativo. Mercurius-Thoth !!! Seth+Horus
+
+Por isso não importa o polo de começo, é preciso equilibrar-se entre eles, a luz e a sombra, o pai dá lugar ao filho, as coisas mudam de lugar, um filho pode agir mais que outro - sombra ou luz, hermes ou phebo - Assim o equilíbrio é encontrado nas obras lunares e solares. A lua equilibrando acertando sua passividade, e o sol diminuindo sua atividade.
 
 4
+
 LEI, CAUSA E EFEITO --- NEWTON, Macro+Micro, físico, sutil, Not Hermetic
 Toda ação tem uma reação "o universo se divide em dois", é criada a sombra
 da experiência de cada ação, ação tornam-se processos, processos tornam-se
