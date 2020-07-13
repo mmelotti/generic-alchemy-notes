@@ -134,3 +134,58 @@ Para ilustrar os dois espaços ele aponta o modelo linear (visual) e seu modo qu
  Em defesa dessa concepção, ele argumenta que: De um lado, a mídia impressa adota e preserva o espaço visual; enquanto de outro, meios como a televisão e as tecnologias de database (satéiletes e internet), impulsionam seus usuários para um universo mais dinâmico, multicentralizado no que seria o Espaço Acústico. Alertando, diante disso, que essa movimentação muito possivelmente não aconteceria suavemente/automaticamente, mas que seria um processo consciente. O autor aponta que, com o advento da aldeia global, enquanto resultado do worldwide communication, essas duas visões de mundo co-existiriam e precisariam ser entendidas simultaneamente, e não a partir de um ponto de vista fixo. A transição do Espaço Visual para o Acústico não foi automática com o advento da rede mundial, mas teria que ser um projeto deliberado.
 
  O "ambiente universal de fluxo eletrônico simultâneo"[25], inerentemente, favorece o Espaço Acústico. Ainda sim, nós somos retidos por hábitos de aderir a um ponto de vista fixo. Não existem barreiras para o som, nós ouvimos de todas as direções de uma só vez. Ainda sim, o Espaço Acústico e o Visual são inseparáveis. O intervalo de ressonância é a fronteira invisível entre eles. 
+ 
+ 
+ # HERMETIC QUESTIONS
+
+Tudo está vivo: é difícil provar. Mas tudo se comunica, ou à tudo é comunicado - mesmo que inconsciente ou programado à inércia aparente-física.
+
+Podemos falar à tudo, à cada coisa, tudo é comunicável, mesmo que em um nível muito abstrato - difícil de compreender em um primeiro momento. Em tudo se injeta ideias, pensamentos, ar. Há um retorno (respostas) que às vezes se perdem no próprio respirar!
+
+A vida inorgânica (considerando o conceito químico) pode apresentar parâmetros diferenciados, pois viver é influenciar e ser influenciado. Como um planeta distante, um diamante. Um vidro refletido em outro vidro, um ouvido recebendo vibrações, o pulsar.
+
+A energia só descansa. Então em tudo há trocas de energias, às vezes visíveis, outras vezes audíveis e até mesmo invisíveis para quem não aprendeu a identificar a cor de cada ar. Pois esquecemos como fazíamos para nos comunicar antigamente.
+
+Antes da linguagem e das artes, o instinto prevalecia. Adormecemos-o um pouco quando estendemos cinco sentidos em direção ao infinito - buscando experiências virtuais que já estão em nós.
+
+
+
+ASTRO QUESTÕES
+
+A lua só brilha se o Sol brilhar também - 
+
+Ciclo menstrual e lunar = 29 dias aproximadamente
+
+Gestação = 10 ciclos lunares
+
+Revolução da lua em torno da terra = ciclo lunar
+
+A lua tem muita influencia sobre as águas, marés, fluxos refluxos, instinto e junto com o sol, imaginação.
+
+
+Mercúrio é mais misterioso que a Lua, poucos são aqueles que os conhecem em profundidade - e sabem que não sabem muito. As sondas mandadas para Mercúrio sempre deram muito trabalho e por vezes voltava com resultados insatisfatórios (se é que voltavam com algum resultado), assim como as pessoas que trabalharam para isso acontecer ainda não foram dignas para conhecê-lo em profundidade - o mais arisco e enganador dos astros irmãos. 
+
+O trabalho tem que justificar o trabalhador, pois as ações justificam os atores - assim diz Mercúrio. “Como se mostrar, ainda que muito vestido e não nu, para seres que fazem lixo da própria morada?”
+
+A Lua explicava para Terra que ainda é cedo para conhecer Mercúrio, que dê tempo ao tempo, mas ela se irritava cada vez mais e planejava uma forma para chamar sua atenção, articulando um plano junto à seus moradores - ou acorrentada por eles.
+
+Para quem não precisa de olhos para ver, sabe que em breve virão aqueles que Mercúrio considera dignos de representatividade e assim, lhe abrirão muitos de seus mistérios - como tem ocorrido com alguns poucos filósofos de valor. A Lua espera que haja revelações (e talvez, novas revoluções) de Mercúrio ainda em tempo útil, para que possamos replicar sua sabedoria oculta na Terra a fim de curá-la.
+
+
+------
+
+Nada está parado, só há uma única possível inércia. Todo o resto é inércia superficial (não inércia) em partes fragmentadas - visto de olhos microscópios, tudo dança, tudo vibra. TUDO GIRA EM TORNO DE TUDO - ou simplesmente, tudo gira. A definição do ponto observador é a diferença principal.
+
+Você se torna aquilo que (quer) absorver, depois de observar. O Jogo dos Espelhos! 
+
+
+
+SISTEMA BALANCEADO - SB - like band, company, groups organized
+SB é tão fraco quanto seu elementos mais fraco - pode ser mais negativo quanto seu elemento mais negativo. É uma tendência, mas não tautologia atemporal. Depende de como lidamos e aproveitamos melhor cada talento - e cada um deve mostrar o seu na hora certa e abrir os olhos para quem não quer ver, de forma a buscar ENTENDIMENTO, melhor COMUNICAÇÃO entre as partes. 
+
+SB com elemento X com três negativos, ‘ - - - ‘ , (quase uma analogia a maçã podre do cesto) pode dividir SB, de forma que ele não fique mais balanceado - fragmentar de forma a dificultar a união entre as partes, divisão para implodir ou vaporizar conexões que levarão à queda de seus prédios altos abstratos de ideias, deixando dúvidas e medos que impedem de prosseguir. Perseverança é necessário - ‘lê, lê, relê, refaz, repensa, melhora, lê, relê, refaz…’
+
+SB é tão forte quanto sua parte mais forte - Y positivo ‘ + + + ‘, uma tendência de união e ativação das melhores partes - não necessariamente todas - em cada um dos elementos do sistema. 
+
+
+
