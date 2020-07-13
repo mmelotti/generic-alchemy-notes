@@ -163,6 +163,10 @@ Revolução da lua em torno da terra = ciclo lunar
 
 A lua tem muita influencia sobre as águas, marés, fluxos refluxos, instinto e junto com o sol, imaginação.
 
+Nada está parado, só há uma única possível inércia. Todo o resto é inércia superficial (não inércia) em partes fragmentadas visto de olhos microscópios, tudo dança, tudo vibra. TUDO GIRA EM TORNO DE TUDO, ou simplesmente, tudo gira. A definição do ponto observador é a diferença principal.
+
+Você se torna aquilo que (quer) absorver, depois de observar. O Jogo dos Espelhos! 
+
 ------
 
 Mercúrio é mais misterioso que a Lua, poucos são aqueles que os conhecem em profundidade - e sabem que não sabem muito. As sondas mandadas para Mercúrio sempre deram muito trabalho e por vezes voltava com resultados insatisfatórios (se é que voltavam com algum resultado), assim como as pessoas que trabalharam para isso acontecer ainda não foram dignas para conhecê-lo em profundidade - o mais arisco e enganador dos astros irmãos. 
@@ -175,9 +179,7 @@ Para quem não precisa de olhos para ver, sabe que em breve virão aqueles que M
 
 ------
 
-Nada está parado, só há uma única possível inércia. Todo o resto é inércia superficial (não inércia) em partes fragmentadas - visto de olhos microscópios, tudo dança, tudo vibra. TUDO GIRA EM TORNO DE TUDO - ou simplesmente, tudo gira. A definição do ponto observador é a diferença principal.
 
-Você se torna aquilo que (quer) absorver, depois de observar. O Jogo dos Espelhos! 
 
 SISTEMA BALANCEADO (SB) - como uma banda, empresa, grupos organizados
 
