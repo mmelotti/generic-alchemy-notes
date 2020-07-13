@@ -410,6 +410,23 @@ Mas muitas estão sendo levadas em uma corrente, há uma grande força nessa cor
 
 Essa corrente atualmente parece ser uma corrente de ódio. De orgulho, de ego, do indivíduo acima de tudo, o resto todo por baixo sempre que der. É uma aberração que ele ainda esteja no poder. Parece que já não há o que perder. Mas nas verdade já estamos perdendo a luta que todos paíse estão combatendo, essa pandemia. Essa corrente não parece de paz, mas também parece uma corrente que atua um pouco na superfície, pois se quebra um argumento de fascista muito fácil, é por isso que eles odeiam a educação e a ciência, pois elas são o fato que comprova sua ignorância.
 
+-------------------------
+
+
+Estudos sobre o número 17, Mercúrio contra Bolsonaro.
+
+o 10 o novo ovo, o 7 a velocidade-ciclos, 17 traquinagem,
+
+Que segundo o tarô, em sua lâmina de número 17, representando mercúrio,
+
+A lâmina de número 10 representando o signo de virgem, tendo seu regente mercúrio,
+
+E a lâmina de número 7, representando o signo de virgem, tem seu regente mercúrio.
+
+Assim na terra como no céu, o que sai, vem de dentro. Assim o mundo foi criado.
+
+Partindo desse princípio, é necessário relacionar o fenômeno envolvendo o número 17, no Brasil, a figura de Mercúrio, figura clássica da mitologia Romana, tendo seu equivalente em Hermes, da mitologia grega. O jeitinho brasileiro.
+
 
 
 
