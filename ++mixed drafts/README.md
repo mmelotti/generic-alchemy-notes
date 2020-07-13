@@ -190,4 +190,117 @@ SB com com um "elemento maçã podre do cesto" pode dividir um SB, de forma que 
 SB é tão forte quanto sua parte mais forte, uma tendência de união e ativação das melhores partes (mas não necessariamente todas) em cada um dos elementos do sistema. 
 
 
+----------------
+
+Tratado sobre Consciência e Alquimia - SO MOTE IT BE
+
+Do Tempo sobre a História...Time over History
+
+1
+
+nigredo, albedo, rubedo < sutil +++, abstrato, macro +++ == hermético
+
+- trabalha sombra, purificando repetindo e conhecendo
+
+apollo e sua sombra, Thor e Loki, Júpiter e Mercurius
+
+apollo e hermes trabalhando juntos para o caminho do meio.
+
+conhece a ti mesmo - encontrará a sujeira do mundo - 
+
+2
+
+sol, lua, e terra < físico +++, macro
+
+phebo apollo é sol, gêmeo de ártemis-virgem fértil, e hermes veio de Maia, nascido
+
+da escuridão da noite, mestre das ilusões e dos contrários, cria e desfaz conflitos, aprende e ensina, transmite. fala, falus.
+
+Caduceu, caído do céus. Senhor das encruzilhadas, age com Exu, laroiê..
+
+O que é lunar, ou seja, a terra a princípio, recebe a matéria da ação (sol) e purifica-se, virando uma terra cada vez mais transformada dependendo da ação direcionada --- por isso cultos ao sol que acreditam poder mudar o rumo através da vontade do Sol (ou mudar as próprias vontades seguindo o Sol) - espelho da nossa própria vontade, de querer mudar nos, sempre.
+
+3
+
+sal, enxofre, mercúrio < físico -, sutil +, micro +++ = hermético
+- um princípio - causa - é aplicado sobre uma lei, sobra cinzas, queima 7x o sal
+vontade-ação aplicada sobre-entre um meio (mercúrio-lei) == dual (serve e não)
+a ação implica no sucesso e fracasso, vários fracassos para poucos sucessos...
+dos fracassos aprendemos para ter sucesso e não falhar na ação aplicada...
+agindo mediante a lei...
+o mercúrio aqui carrega a lei pois carrega a geração, a genética,
+ele é o meio pelo qual o enxofre-fogo-elétrico age, que vai gerar
+a divisão do universo em dois, fracasso e sucesso, em escalas diferentes para cada.
+
+Todas as trindades são a mesma coisa, vendo de espaço-ângulos-tempos diferentes
+pois a causa age sobre uma lei e gera um efeito, a semente de angu não vai
+dar em uma maçã. Quando agimos empregando o caos como causa...
+Quando se chega ao conhecimento da energia do caos e da ordem, entende-se
+que os opostos apenas se diferem em grau, sendo "a mesma coisa".
+
+""Caos - causa, uso do caos agindo sobre a vontade-lei, talvez ao vento ou contra
+todos os ventos! Para gerar algo novo, caótico, original, caso haja
+existência para tais conceitos nesse universo. Hermes-loki ou outro
+trickster subversivo aparenta agir pelo egoísmo mas suas ações
+refletem em escala global sempre resultado em grandes mudanças...""
+
+Como Apollo é o princípio ativo, agindo sendo primeiro o albedo (espelhado
+da fonte ?) que vira o rubedo.... transforma-se virando rígido, lei,
+nesse momento há necessidade de uma nova vontade, num universo dual,
+a lei e a causa invertem de lugar quando necessário!
+
+O princípio da lei era de Apolo, mas se divide com mercúrio-hermes,
+Mercúrio faz a mudança quando necessário, Explica a Apolo, os dois lados
+são contidos para que haja outra vez a harmonia, como no presente da tartaruga
+para apaziguar Apollo... pois até ele age sobre a lei de sua vontade (enxofre)!!
+
+Hermes é agente quando preciso, reconhece e discute a lei. Toma punições ou não.
+É tudo de acordo com a lei regente, e o quanto se pode usar do nigredo da lei
+quando o nigredo está ativo. Mercurius-Thoth !!! Seth+Horus
+
+Por isso não importa o polo de começo, é preciso equilibrar-se entre eles,
+a luz e a sombra, o pai dá lugar ao filho, as coisas mudam de lugar,
+um filho pode agir mais que outro - sombra ou luz, hermes ou phebo -
+Assim o equilíbrio é encontrado nas obras lunares e solares.
+A lua equilibrando acertando sua passividade, e o sol diminuindo sua atividade.
+
+4
+LEI, CAUSA E EFEITO --- NEWTON, Macro+Micro, físico, sutil, Not Hermetic
+Toda ação tem uma reação "o universo se divide em dois", é criada a sombra
+da experiência de cada ação, ação tornam-se processos, processos tornam-se
+leis depois de endurecer. EFEITO A LONGO PRAZO - ÉPOCAS
+
+Depois que a lei endurece no seu endurecer, a água fura a pedra, o mercúrio
+penetra na própria lei e há uma sutil inversão de lugares, pois o mercúrio
+tem na natureza a passagem, enquanto que a rocha tem a permanência ==
+expulsa o mercúrio até receber um novo mercurio digno - água mole, pedra
+dura, tanto bate até que fura
+
+Os efeitos de aplicar a ação (-causa) em uma lei podem gerar outras causas - e
+provavelmente o farão - e para cada uma dessas causas, sua lei correspondente,
+e o efeito como resultado... nesse caso podemos perceber que a única variável
+é a ação-causa, mãe de todos os efeitos, elemento passivo e passível
+de mudança, pois antes da causa existe no vazio todas as possibilidades!
+Já que ainda não há a lei.
+
+Na visão lunar, a ação-lunar age sobre a lei é solar.
+A lua integra-se ao sol! O nigredo se queima e integra no enxofre!
+Morre, e as cinzas são reutilizadas - nada se perde...
+evolui evolui... vai e volta, sobe e desce, movimento
+
+Para a visão solar na ação, naturalmente ativa, a lei é a Lua.
+O sol age sobre a regência mais caótica da lua.
+Se integra, faz a lua brilhar.
+A lei é menos importante que o amor-entendimento....
+inverte o agente de mudança, velho novo, ativo passivo....etc....
+
+Para quem busca a luz sem entender que o tempo é uno, e sobre ele
+estamos nos dividindo e recompondo todo o tempo,
+sofre fisicamente de algum tipo de inércia, o que o faz sempre
+lembrar do passado - tendência só, assim, não unifica teorias, pois fragmentado
+é sua visão do tempo, que assim como as teorias, deve ser visto
+como a mesma coisa... História é o que se mostra dividido, o tempo é que engloba
+os seus pedaços! Receptáculo abstrato.
+
+
 
