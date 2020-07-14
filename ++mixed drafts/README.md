@@ -9,22 +9,8 @@ unidade e divisão….
 como  ooriente tem uma vibe mais voltada pra unidade, enquanto o ocidente voltado para a divisão…..
 
 
-……..
-FOFOCA E POLITICA
-
-FATOS INTERNACIONAIS
-
-FOFOCA INTERNACIONAL
-
-TIRAR O FOCO DO LOCAL
-
-AS VEZES NEM DA PRA FAZER NADA
-
-MAS A GENTE NAO OBSERVA NOSSA REALIDADE
-
-A GENTE AGE PASSIVAMENTE
-
-AS PESSOAS AGEM ASSIM SEM VIGIAR
+--------
+Coisas bobas tiram nossa energia, fofoca e política, fatos internacionais... tudo isso tira o foco do local. Muitas vezes nem podemos fazer nada mas não observamos nossa própria realidade. A gente agente passivamente, as pessoas agem assim, sem vigiar.
 
 
 
@@ -234,9 +220,9 @@ Todas as trindades são a mesma coisa, vendo de espaço-ângulos-tempos diferent
 
 Quando se chega ao conhecimento da energia do caos e da ordem, entende-se que os opostos apenas se diferem em grau, sendo "a mesma coisa".
 
-""Caos - causa, uso do caos agindo sobre a vontade-lei, talvez ao vento ou contra todos os ventos! Para gerar algo novo, caótico, original, caso haja existência para tais conceitos nesse universo. Hermes-loki ou outro trickster subversivo aparenta agir pelo egoísmo mas suas ações refletem em escala global sempre resultado em grandes mudanças..
+Caos - causa, uso do caos agindo sobre a vontade-lei, talvez ao vento ou contra todos os ventos! Para gerar algo novo, caótico, original, caso haja existência para tais conceitos nesse universo. Hermes-loki ou outro trickster subversivo aparenta agir pelo egoísmo, mas suas ações refletem em escala global sempre resultado em grandes mudanças.
 
-Como Apollo é o princípio ativo, agindo sendo primeiro o albedo (espelhado da fonte ?) que vira o rubedo.... transforma-se virando rígido, lei, nesse momento há necessidade de uma nova vontade, num universo dual, a lei e a causa invertem de lugar quando necessário!
+Como Apollo é o princípio ativo, agindo sendo primeiro o albedo (espelhado da fonte ?) que vira o rubedo.... transforma-se virando rígido, lei, nesse momento há necessidade de uma nova vontade, num universo dual, a lei e a causa invertem de lugar quando necessário, temporariamente ou numa falsa troca de essência.
 
 O princípio da lei era de Apolo, mas se divide com mercúrio-hermes. Mercúrio faz a mudança quando necessário, Explica a Apolo, os dois lados são contidos para que haja outra vez a harmonia, como no presente da tartaruga para apaziguar Apollo... pois até ele age sobre a lei de sua vontade (enxofre)!!
 
