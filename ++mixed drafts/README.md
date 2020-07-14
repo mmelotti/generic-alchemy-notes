@@ -256,4 +256,48 @@ Para quem busca a luz sem entender que o tempo é uno, e sobre ele estamos nos d
 
 -----------
 
+ALQUIMIA DE BARDON
+
+Equilibrar os 4 elementos: Fogo da vontade da cabeça, as emoções da água e as mediações do ar no peito. Terra se mantém forte.
+
+Sede, fome, frio e cansaço. Fome e descanso resolvem cansaço. Sono aconchegante tira o frio, mantém equilibrado. Calor é falta de equilíbrio e de frio-água também, causa irritabilidade, precisa resolver com o frio, relaxar, refrescar. Calma e tranquilidade, sentir-se em casa para melhorar emoções (água). Um banho relaxante para manter as emoções tranquilas.
+
+Os quatro elementos no continente:  Estados unidos é fogo, sempre produzindo, centro cultural. Assim como a china tem seu fogo, porém é mais água, introspectiva. O oriente é introspectivo. Enquanto o ocidente se mostra mesmo, bota a cara a tapa. Brasil fabricante de belos memes da internet, trump doido, bolsonaros etc. A guerra na rússia foi ganha graças a RETIDÃO, aproveitando o inverno. Eles ganharam do fogo alemão, fogo negativo.
+
+Olhar como análogo em alguns casos, o japão e a califórnia. Canadá tem diálogo com china e rússia. Brasil em 2017, totalmente trickster da terra, em modo negativo, safadeza, ou seja, o ar em seu lado ‘negativo’ opera no brasil - corrupção. Como atualmente em várias partes do mundo. É importante dizer sobre rússia e china: algo introspectivo, materno, feminino, força feminina em evidência como no Brasil. Em 2020 a força feminina se mostra forte em outros lugares do mundo também.
+
+A produção aparentemente aparece análoga, nos meios do mundo, onde é mais quente, o ódio fermenta mais, ideias fermentam mais rápido querendo resoluções. No sul as coisas demoram mais, porém podem ser mais equilibradas se mantidas em retidão no momento certo e podem ser como o espelho do norte.
+
+China vai ser o novo fogo, pois já foi água demais. Uma batalha constante china-eua. Intermediado por quem tá mais preocupado com terras, os selvagens do sul, austrália, brasil colômbia. E os super desenvolvidos do frio do inverno que ocorre no norte.
+
+Fogo = impulsividade, vontade
+
+Água = vida, emoção
+
+Ar = intelecto, razão (e imaginação?)
+
+Terra = consciência do eu, comunhão, realização
+
+As grandes questões:
+
+--- Enrolar demais para entregar as coisas, quanto mais autonomia, mais demora sem vontade ou paixão…. preguiça e procrastinação com distração fácil
+
++++ Trabalho psicológico de melhorar os defeitos, anotar logo! Queimar os defeitos para evoluir.
+
++++ Ao acordar, alongamentos sinceros-fortes e banho quente!
+
+
+Inspiramos oxigênio (fogo) e nitrogênio (água), expiramos nitrogênio
+
+Ar = alimento, mais sutil
+
+Fruta = alimento, mais denso
+
+Respiração consciente em relação aos elementos é importante.
+
+Os alquimistas fazem maceração para conseguir o líquido dos líquidos do vegetal específico. Como a essência do vegetal. Bardon sugere que os elementos mais frios são mais carregados magneticamente. Experiência é gelar esse líquido com boas essenciais…. esses líquidos são do tipo que absorvem muito, podem grudar a outros elementos densos, mas sem conter sujeira, talvez seja uma prática de congelar e carregar magicamente esses fluidos primordiais - derivar remédios quem sabe.
+
+Mistério do inconsciente…. usar a fórmula no imperativo….. praticar primeiro ao dormir…. depois ao acordar. Auto sugestão é forte. Mias forte no meio-sono.
+
+O exercício completo é inspirar o bom e expirar o ruim, conscientemente e de forma calma. Entrada e saída em equilíbrio.
 
