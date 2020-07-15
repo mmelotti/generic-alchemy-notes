@@ -182,10 +182,10 @@ Segundo o autor, o aplicativo nunca subistitui o médico - que sempre pode escol
 
 ------------------
 
-Escopo: uma introdução e aplicações básicas ou atuais da I.A.; questão: entraremos numa nova era de escravidão devido a I.A.?
+Escopo 1: uma introdução e aplicações básicas ou atuais da I.A.; questão: entraremos numa nova era de escravidão devido a I.A.?
 Considerações: refletir opiniões otimistas ou positivas para esse primeiro cenário
 
---------------------
+---------
 
 BASICAMENTE AINDA NA ERA DE NEGÓCIOS ESTAMOS FALANDO DE SISTEMAS DE RECOMENDAÇÃO, MAS VOLTADO PARA APLICAÇÕES DE GRANDE IMPACTO FINANCEIRO, COMO EMPRÉSTIMOS E TRATAMENTOS MÉDICOS, O QUE REFORÇA A TESE DA UTOPIA DO AUTOR ..... ELAS DE DIFEREM DO SISTEMA DE RECOMENDAÇÃO DE VIDEOS, por exemplo, ONDE A RECOMENDAÇÃO É FOCADA NO PERFIL DO USUÁRIO que vai escolher o próprio caminho, NÃO ONDE O USUÁRIO ESCOLHE ENTRE DIFERENTES PESSOAS OU TRATAMENTOS PARA ACEITAR OU RECUSAR e impactar a vida de outras pessoas.....
 
@@ -198,11 +198,11 @@ Da mesma forma que acontece com o sistema de navegação para os médicos, há f
 
 -----------------------
 
-Escopo: diferença entre uma era e outra da I.A. com mais exemplos; Questão: Existe livre arbítrio na segunda era da I.A. (existe livre arbítro de uma forma geral?)
+Escopo 2: diferença entre uma era e outra da I.A. com mais exemplos; Questão: Existe livre arbítrio na segunda era da I.A. (existe livre arbítro de uma forma geral?)
 Considerações: importante notar que nos primeiros exemplos de aplicação, o indivíduo ainda tem o poder de escolha sobre si, já no segundo momento, as recomendações das aplicações não são tão claras, estamos a mercê da boa vontade de um algoritmo que não sabemos exatamente como funciona.
 
 
-----------------------
+-----------
 
 A IA de percepção está digitalizando nosso mundo físico. Com reconhecimento de faces e vozes por exemplo.
 
@@ -212,13 +212,30 @@ EDUCAÇÂO - Os sistemas de educação são executados no "modelo fabril" do sé
 
 Nesse cenário, "durante o ensino presencial, as escolas empregarão um modelo de professor duplo que combinar uma palestra de transmissão remota de um educador de alto nível e uma atenção mais pessoal do professor na sala de aula. Na primeira metade da aula, um professor de primeira linha faz uma palestra por meio de uma televisão de tela grande na frente da turma. Esse professor dá palestras simultaneamente para cerca de vinte salas de aula e faz perguntas que os alunos devem responder por dispositivos portáteis em tempo real, demonstrando se compreendem os conceitos."
 
-Essa parte é apenas uma fração de odo o quadro da educação em IA, que é a parte da sala de aula. Ele continua "durante a palestra, uma câmera usa reconhecimento facial e análise de postura para ver a participação, verificar a atenção dos alunos e avaliar o nível de compreensão baseado em gestos como assentir, balançar a cabeça e expressões de perplexidade. Todos esses dados - resposta às perguntas, atenção e compreensão - vão diretamente para o perfil do estudante, preenchendo uma imagem em tempo real de que os alunos sabem e em que parte precisam de ajuda extra".
+Maravilhoso, não? E essa parte é apenas uma fração de todo o quadro da educação em IA, que é a parte da sala de aula.
+
+
+----------------------
+
+Escopo: início da mistura do real e digital, ou digitalização do mundo material, exemplo da educação. Questão: A I.A. promove a Libertação de um modelo ultrapassado de educação, ou apenas cria novas amarras?
+Considerações: a partir desse ponto fica claro que o ser humano tem o papel decisivo de decidir o que é melhor pra si, pois estamos falando de uma mescla entre o digital e o físico, virtual e material, etc. Então é um acordo entre ambas as partes.
+
+---------------
+
+Essa parte é apenas uma fração de todo o quadro da educação em IA, que é a parte da sala de aula. Ele continua "durante a palestra, uma câmera usa reconhecimento facial e análise de postura para ver a participação, verificar a atenção dos alunos e avaliar o nível de compreensão baseado em gestos como assentir, balançar a cabeça e expressões de perplexidade. Todos esses dados - resposta às perguntas, atenção e compreensão - vão diretamente para o perfil do estudante, preenchendo uma imagem em tempo real de que os alunos sabem e em que parte precisam de ajuda extra".
 
 Como exemplo, essa tecnologia alimentada por IA economizará tempo dos professores na correção dos conceitos básicos, permitindo que dediquem esse tempo para se comunicar com os alunos sobre conceitos de redação de nível mais alto, já que erros de padrão de ortografia podem ser marcados automaticamente, com deduções predeterminadas de pontos para certos erros. Para os alunos que estão "ficando para trás", os pais serão automaticamente notificados sobre a situação de seus filhos, dando uma explicação clara e detalhada de quais conceitos o aluno está tendo dificuldade.
 
-Contudo, entramos na questão dos espaços públicos e dados privados, por exemplo, as cidades chinesas já usam uma densa rede de câmeras e sensores para reforças as leis de trânsito...... Muitos norte-americanos podem ter ressalvas sobre expor informações em alguns espaços que os chineses não tem, já que "eles não querem que o big brother ou a América corporativa saibam tanto sobre o que eles estão fazendo." enquanto o povo chinês aceita que se rosto, voz e escolhas de compras sejam capturados e digitalizados e esse é um exemplo da maior disposição chinesa para trocar algum grau de privacidade por conveniência. Aqui temos grandes questões que povoam o imaginário ocidental, como se os chineses realmente tem essa liberdade de escolha, e afinal, quais são os chineses que são monitorados e os que não são, há alguma diferença na tratativa desses casos? 
+Contudo, entramos na questão dos espaços públicos e dados privados, por exemplo, as cidades chinesas já usam uma densa rede de câmeras e sensores para reforças as leis de trânsito...... Muitos norte-americanos podem ter ressalvas sobre expor informações em alguns espaços que os chineses não tem, já que "eles não querem que o big brother ou a América corporativa saibam tanto sobre o que eles estão fazendo." enquanto o povo chinês aceita (eles tem escolha?) que seu rosto, voz e escolhas de compras sejam capturados e digitalizados e esse é um exemplo da maior disposição chinesa para trocar algum grau de privacidade por conveniência. Aqui temos grandes questões que povoam o imaginário ocidental, como se os chineses realmente tem essa liberdade de escolha, e afinal, quais são os chineses que são monitorados e os que não são, há alguma diferença na tratativa desses casos? Se fosse no Brasil era óbvia a resposta. "minoria tem que se curvar diante da maioria" disse um não poeta, não estudado, não filósofo e presidente.
 
 Os Estados Unidos continuam lutando para implementar proteções apropriadas à privacidade do usuário, uma tensão ilustrada pelo escândalo da Cambridge Analytica do Facebook e pelas subsequentes audiências no congresso. A China começou a implementar sua própria lei de segurança cibernética em 2017, que incluía novas punições para ou venda ilegal de dados dos usuários. Em termos de impacto imediato, a relativa abertura da China para a coleta de dados em locais públicos significa uma grande vantagem inicial na implementação da IA de percepção. Está acelerando a digitalização de ambientes urbanos e abrindo as portas para novas aplicações no varejo, segurança e no transporte.
+
+-------------------------------
+
+Escopo: início da questão da privacidade.
+
+
+--------------
 
 Insights e conhecimentos de um livro X....
 
