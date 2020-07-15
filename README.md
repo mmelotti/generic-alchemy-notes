@@ -183,7 +183,8 @@ Segundo o autor, o aplicativo nunca subistitui o médico - que sempre pode escol
 ------------------
 
 Escopo 1: uma introdução e aplicações básicas ou atuais da I.A.; questão: entraremos numa nova era de escravidão devido a I.A.?
-Considerações: refletir opiniões otimistas ou positivas para esse primeiro cenário
+
+Considerações: refletir opiniões otimistas ou positivas para esse primeiro cenário. E sobre cada click, estamos dando ouro para alguém do outro lado do mundo, mas parte desse ouro volta para o país?
 
 ---------
 
@@ -199,6 +200,7 @@ Da mesma forma que acontece com o sistema de navegação para os médicos, há f
 -----------------------
 
 Escopo 2: diferença entre uma era e outra da I.A. com mais exemplos; Questão: Existe livre arbítrio na segunda era da I.A. (existe livre arbítro de uma forma geral?)
+
 Considerações: importante notar que nos primeiros exemplos de aplicação, o indivíduo ainda tem o poder de escolha sobre si, já no segundo momento, as recomendações das aplicações não são tão claras, estamos a mercê da boa vontade de um algoritmo que não sabemos exatamente como funciona.
 
 
@@ -218,6 +220,7 @@ Maravilhoso, não? E essa parte é apenas uma fração de todo o quadro da educa
 ----------------------
 
 Escopo 3: início da mistura do real e digital, ou digitalização do mundo material, exemplo da educação. Questão: A I.A. promove a Libertação de um modelo ultrapassado de educação, ou apenas cria novas amarras?
+
 Considerações: a partir desse ponto fica claro que o ser humano tem o papel decisivo de decidir o que é melhor pra si, pois estamos falando de uma mescla entre o digital e o físico, virtual e material, etc. Então é um acordo entre ambas as partes.
 
 ---------------
@@ -233,10 +236,14 @@ Os Estados Unidos continuam lutando para implementar proteções apropriadas à 
 -------------------------------
 
 Escopo 4: início da questão da privacidade e diferenção de culturas. Questão: privacidade importa se os ganhos justificarem os meios? Há de fatos esses ganhos?
-Considerações:
+
+Considerações: Há muitas questões culturais que impactam a aceitação e a regulamentação da I.A. , é importante pensar como fica o Brasil nesse caso, seremos uma colônia para o novo petróleo? O novo ouro digital?
 
 
 --------------
+
+
+Será que estamos dando valor a nossa navegação, pois estamos gerando hoje o novo petróleo, o ouro digital que alimentará por muito tempo a tecnologia futura. Nossos filhos e netos devem usurfruir desse plantio se soubermos agir agora. Afinal, nós contruímos essas cidades digitais. Navegar pelo google earth vale o preço de entregar detalhes sobre nossos hábitos, geografia, e principalmente: nossas emoções? Dizem que as últimas eleições foram ganhas com base nesses dados que fornecemos de graça a diversas empresas. Será que está valendo a pena?
 
 Insights e conhecimentos de um livro X....
 
