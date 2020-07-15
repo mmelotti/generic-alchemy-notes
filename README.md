@@ -166,7 +166,17 @@ Estamos escolhendo hoje a cada click quem irá regular e tomar o lado humano no 
 
 4 eras, ondas ou marco.
 
-IA de internet está bem consolidada, IA de negócio também em alguns locais. IA de internet tem relação com motores ou sistemas de recomendação, os algoritmos que criam a tal bolha recomendando coisas cada vez mais dentro gosto do usuário, de suas preferências pessoais. Isso é a aplicação digital do que chamamos no mundo físico de "mente fechada", um bando de pessoas que só adoram confimar as suas verdades e tem aversão a tudo que lhes é diferente. Acho que não precisa dizer que isso é a base do preconceito, logo, essas bolhas fortalecem a estrutura vigente de ódio ao diferente. A eleição de 2016 no EUA é um exemplo. Tem o exemplo do robô repórter, que ao fim de um jogo esportivo, por exemplo, já cria um rápido resumo em menos de 1 minuto.
+Estamos entrando em uma nova era de preconceito e ódio devido a Inteligência Artificial?
+
+Deixando de lado as teorias da conspiração (por favor), podemos examinar mais profundamente essa questão com ajuda das lentes do professor Kai-Fu Lee, autor, cientista da computação e especialista em Inteligência Artificial que já foi presidente do Google China. 
+
+Esse autor divide a história da Inteligência Artificial em 4 marcos ou ondas, das quais 2 já estão bem consolidadas: I.A. de Internet e a I.A. de negócio. Dentro das aplicações e usos da chamada I.A. de internet, temos o exemplo do robô repórter, que ao fim de um jogo esportivo, por exemplo, cria rapidamente um resumo em menos de 1 minuto e divulga como notícia em determinados sites.
+
+Mas além desse exemplo, a I.A. de Internet tem relação com motores ou sistemas de recomendação tão discutidos atualmente, os algoritmos que criam a tal bolha recomendando conteúdo cada vez mais dentro gosto do usuário e de suas preferências pessoais. Isso é a aplicação digital do que chamamos no mundo físico de "mente fechada", ou seja, atua fortemente em um grupo de pessoas que só adoram confirmar as suas verdades e tem aversão a tudo que lhes é diferente. 
+
+Acho que não precisa dizer que essa aversão ao diferente é a base de qualquer preconceito possível, logo, essas bolhas fortalecem a estrutura vigente de ódio ao diferente. A eleição de 2016 no EUA é um exemplo. Pelas escolhas e cliques dos usuários na Internet, esses usuários receberam propagandas de certos candidatos à presidência. É um fenômeno que ocorreu também nas eleições brasileiras, aumentando a polarização tanto política como social. 
+O resultado? Ainda colhemos frutos dessa eleição, tendo a polarização como efeito quase dois anos depois do ocorrido. O aumento do desrespeito, intolerância e ódio dos que pensam diferente de nós, tudo isso é resultado do avanço da tecnologia, em um certo ponto. Porém, podemos mesmo culpar a tecnologia por isso? Afinal de contas, quem cria a tecnologia e quem faz uso da tecnologia? Certamente não é a tecnologia que nos obriga a agredir verbal ou fisicamente o nosso semelhante que pensa diferente!
+
 
 No caso da IA de negócios, elas podem usar relações matemáticas complexas aparentemente indecifráveis para um ser humano, e pode dar uma relação de causa e efeito que a primeira vista é inexplicável, como "alguém que pega empréstimo na quarta-feira paga mais rapidamente". Meio bizarro, né?! Eu poderia traçar alguns paralelos disso com a famosa "Astrologia de horóscopo", mas fica para uma próxima, rs. 
 
