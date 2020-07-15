@@ -177,16 +177,36 @@ O caso do conhecimento médico: o poder de fornecer diagnósticos precisos é pr
 
 Um ponto importante é que a tecnologia de IA poderia transformar quase qualquer profissional médico em um superdiagnosticador, com uma capacidade - a IA como extensão de suas capacidades - incomum de detectar correlações ocultas e uma memória perfeita - a tecnologia como extensão de sua memória - que pode ser usada. Ao invés de substituir os médicos por algoritmos, o aplicativo de diagnóstico os capacita e age como um mediador, ou "aplicativo de navegação" para o processo de diagnóstico, como se ele fosse seu mapa indicando as rotas, mas com a condução do carro pelo médico.
 
-Segundo o autor, o aplicativo nunca subistitui o médico - que sempre pode escolher ignorar as recomendações do aplicativo - mas percorre milhões (bilhões em breve) de registros médicos existentes e examina continuamente as publicações médicas para fazer recomendações. Ele dissemina o conhecimento médico de primeira linha igualmente por sociedades altamente desiguais - nesse ponto, uma consideração: considero isso uma utopia do autor, visto que isso nunca aconteceu na história recente da humanidade, pois quem detém a informação é o detentor de tecnologia ou quem pode pagar por ela, como em qualquer outro setor que envolva economia - e permite que os médicos e enfermeiros se concentrem nas tarefas humanas que nenhuma máquina pode fazer (será?): garantir que os pacientes se sintam cuidados e consolados quando o diagnóstico não é otimista. .....BASICAMENTE AINDA NA ERA DE NEGÓCIOS ESTAMOS FALANDO DE SISTEMAS DE RECOMENDAÇÃO, MAS VOLTADO PARA APLICAÇÕES DE GRANDE IMPACTO FINANCEIRO, COMO EMPRÉSTIMO FINANCEIRO E TRATAMENTOS MÉDICOS, O QUE REFORÇA A TESE DA UTOPIA DO AUTOR ..... ELAS DE DIFEREM DO SISTEMA DE RECOMENDAÇÃO DE VIDEOS ONDE A RECOMENDAÇÃO É FOCADA NO PERFIL DO USUÁRIO, NÃO ONDE O USUÁRIO ESCOLHE ENTRE DIFERENTES PESSOAS OU TRATAMENTOS PARA ACEITAR OU RECUSAR.....
+Segundo o autor, o aplicativo nunca subistitui o médico - que sempre pode escolher ignorar as recomendações do aplicativo - mas percorre milhões (bilhões em breve) de registros médicos existentes e examina continuamente as publicações médicas para fazer recomendações. Ele dissemina o conhecimento médico de primeira linha igualmente por sociedades altamente desiguais - nesse ponto, uma consideração: considero isso uma utopia do autor, visto que isso nunca aconteceu na história recente da humanidade, pois quem detém a informação é o detentor de tecnologia ou quem pode pagar por ela, como em qualquer outro setor que envolva economia - e permite que os médicos e enfermeiros se concentrem nas tarefas humanas que nenhuma máquina pode fazer (será?): garantir que os pacientes se sintam cuidados e consolados quando o diagnóstico não é otimista...
+
+
+------------------
+
+Escopo: uma introdução e aplicações básicas ou atuais da I.A.; questão: entraremos numa nova era de escravidão devido a I.A.?
+Considerações: refletir opiniões otimistas ou positivas para esse primeiro cenário
+
+--------------------
+
+BASICAMENTE AINDA NA ERA DE NEGÓCIOS ESTAMOS FALANDO DE SISTEMAS DE RECOMENDAÇÃO, MAS VOLTADO PARA APLICAÇÕES DE GRANDE IMPACTO FINANCEIRO, COMO EMPRÉSTIMOS E TRATAMENTOS MÉDICOS, O QUE REFORÇA A TESE DA UTOPIA DO AUTOR ..... ELAS DE DIFEREM DO SISTEMA DE RECOMENDAÇÃO DE VIDEOS, por exemplo, ONDE A RECOMENDAÇÃO É FOCADA NO PERFIL DO USUÁRIO que vai escolher o próprio caminho, NÃO ONDE O USUÁRIO ESCOLHE ENTRE DIFERENTES PESSOAS OU TRATAMENTOS PARA ACEITAR OU RECUSAR e impactar a vida de outras pessoas.....
+
+IA de internet é voltada para o indivíduo, que pode escolher sempre permancer em sua bolha. Enquanto na I.A. de negócios, alguém escolhe por você.
+
 
 No primeiro momento o usuário não tem controle da recomendação, ele visualiza obrigatoriamente a recomendação, como assistir a um vídeo, no segundo caso, ele tem dados para análise e escolher entre x e y tratamento ou rota por exemplo. Mas essa questão de justificar para o usuário a recomendação pode ser implementado a qualquer momento, inclusive já há recomendações para compra de cursos por exemplo, porque você comprou tal curso, pode gostar desse. Numa plataforma de vídeo não há esse tipo de sinalização, deixa o usuário navegando mais as cegas na caixa preta da ferramenta, é simplesmente conveniente fornecer dados analiticos quando se trata de negócios.
 
 Da mesma forma que acontece com o sistema de navegação para os médicos, há ferramentas judiciais que auxiliam o ser humano a tomar decisões informadas, segundo o autor, essas recomendações ajudariam a equilibrar a balança da justiça e corrigir os vieses presentes em juízes bem treinados, um estudo com juízes de Israel mostrou que eles são muito mais severos antes do almoço e mais brandos na concessão de liberdade condicional depois de uma boa refeição.
 
+-----------------------
+
+Escopo: diferença entre uma era e outra da I.A. com mais exemplos; Questão: Existe livre arbítrio na segunda era da I.A. (existe livre arbítro de uma forma geral?)
+Considerações: importante notar que nos primeiros exemplos de aplicação, o indivíduo ainda tem o poder de escolha sobre si, já no segundo momento, as recomendações das aplicações não são tão claras, estamos a mercê da boa vontade de um algoritmo que não sabemos exatamente como funciona.
+
+
+----------------------
 
 A IA de percepção está digitalizando nosso mundo físico. Com reconhecimento de faces e vozes por exemplo.
 
-Quando você pede uma refeição completa falando uma frase no sofá você está online ou offline? (online claro) Quando sua geladeira em casa diz ao seu carrinhode compras que a soja acabou, você está se movendo por um mundo físico ou virtual? Provavelmente uma mistura dos dois. Podemos até pedir a refeição offline mas só chega no outro ponto online. Então é um combinado entre os dois mundos, o que já vivemos de certa maneira atualmente.
+Quando você pede uma refeição completa falando uma frase no sofá você está online ou offline? (online claro) Quando sua geladeira em casa diz ao seu carrinho de compras que a soja acabou, você está se movendo por um mundo físico ou virtual? Provavelmente uma mistura dos dois. Podemos até pedir a refeição offline mas só chega no outro ponto online. Então é um combinado entre os dois mundos, o que já vivemos de certa maneira atualmente.
 
 EDUCAÇÂO - Os sistemas de educação são executados no "modelo fabril" do século XIX: todos os alunos são forçados a aprender na mesma velocidade, da mesma maneira, no mesmo lugar e no mesmo tempo. Essa mudança na IA acontece em quatros cenários: ensino em sala de aula, lição de casa e exercícios, provas e notas, e aulas personalizadas. O proceso de aprendizado do aluno, como quais conceitos já entenderam, em quais tem dificuldades, como reagem a diferentes métodos de ensino, se prestam atenção durante a aula, com que rapidez respondem às perguntas, e quais incetivos os motivam. Esses dados são coletados e usados para atualizar o processo educacional.
 
