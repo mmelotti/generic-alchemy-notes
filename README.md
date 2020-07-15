@@ -217,7 +217,7 @@ Maravilhoso, não? E essa parte é apenas uma fração de todo o quadro da educa
 
 ----------------------
 
-Escopo: início da mistura do real e digital, ou digitalização do mundo material, exemplo da educação. Questão: A I.A. promove a Libertação de um modelo ultrapassado de educação, ou apenas cria novas amarras?
+Escopo 3: início da mistura do real e digital, ou digitalização do mundo material, exemplo da educação. Questão: A I.A. promove a Libertação de um modelo ultrapassado de educação, ou apenas cria novas amarras?
 Considerações: a partir desse ponto fica claro que o ser humano tem o papel decisivo de decidir o que é melhor pra si, pois estamos falando de uma mescla entre o digital e o físico, virtual e material, etc. Então é um acordo entre ambas as partes.
 
 ---------------
@@ -232,7 +232,8 @@ Os Estados Unidos continuam lutando para implementar proteções apropriadas à 
 
 -------------------------------
 
-Escopo: início da questão da privacidade.
+Escopo 4: início da questão da privacidade e diferenção de culturas. Questão: privacidade importa se os ganhos justificarem os meios? Há de fatos esses ganhos?
+Considerações:
 
 
 --------------
