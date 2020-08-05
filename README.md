@@ -38,9 +38,9 @@ Meu eu do passado escreve para me lembrar que há janelas e portas.
 
 É preciso saber com quem pode comunicar-se, assim coordena-se e coopera-se.
 
-Se hoje um tem lenha, é porque se ganhou a lenha, lá atrás alguém disse que era uma boa coisa.
+Se hoje um tem lenha, é porque se ganhou a lenha, lá atrás alguém disse que era uma boa coisa. Mas não será assim para sempre.
 
-Mais que a lenha, pois a lenha é só o símbolo de uma conquista maior: proteger a nós e a quem amamos do frio.
+Tem que se entender que é mais que lenha, pois a Lenha é só o símbolo de uma conquista maior: proteger a nós e a quem amamos do frio. Aquecer o corpo como resultado do aquecimento e calma de nossas mentes e corações.
 
 Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer. Nossos acentrais lutaram pelo fogo e pelo calor. 
 
