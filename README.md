@@ -6,8 +6,6 @@ Generic Alchemy Notes
 
 Os logs de alteração da coisa toda são muito importantes.
 
-Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações. Qual a sua história?
-
 Logo as pessoas estarão escrevendo livros no github.
 
 Se já não o fazem, vai ver na verdade o nunca deixaram de fazer.
@@ -23,6 +21,8 @@ Cada coisa é uma coisa dentro de outra coisa.
 Acho que esse livro é um dos mais difíceis de se escrever, não pela nova forma de interação, mas pela rotina de buscar algo mais para compartilhar. 
 
 Lebrar de compartilhar o belo de nós sempre que possível.
+
+Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações. Qual a sua história?
 
 É importante to clean the words on some digital pages.
 
