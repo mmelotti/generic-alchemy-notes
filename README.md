@@ -407,13 +407,15 @@ Assim aprende React com Astrologia. Realidade Aumentada com Mitologia.
 
 This is harsh to considere it, and it is hard consdering it, but people could choice over going outside, right? How is it difference to carry a gun and do a blind shot? First sight you may thinks it does not make sense. But considering the pandemic affects now when science is showing that going outside represent a risk to life we have to considere it and feel it. The virus is real and we have to deal with many many considerations about the risk and about life. The greater problem as a affect is to overload the hospitals and causes a break into the health system as a whole (regionally).
 
-People want to keep a dead system alive. The economy the way we know must change. The way we look to each other must change. We will have to really see ourselfs not only as a indivisual, but also as a member of a community. It starts in the smallests organization, as in family. 
+People want to keep a dead system alive. The economy the way we know must change. The way we look to each other must change. We will have to really see ourselves not only as an individual, but also as a member of a community. It starts in the smallests organization, like family.
 
-Os que querem sair e os que querem entrar. De uma forma geral, mas não totalmente verdadeira, em uma generalização, as pessoas que atualmente defendem a saída em um amniente hostil a vida, com alto nível de contágio de qualquer doença são as pessoas pensando de forma
+Os que querem sair e os que querem entrar. De uma forma geral, mas não totalmente verdadeira, em uma generalização, as pessoas que atualmente defendem a saída em um ambiente hostil a vida, com alto nível de contágio de qualquer doença são as pessoas pensando de forma a buscar a solução fora.
 
-Isso não só atualmente, mas em breve no futuro também.
+Isso não só atualmente, mas em breve e no futuro também.
+
 E depois do meio esquentar.
-Há a troca de polo, ou síntese dos polos que vai ser a nova tese e irá de encontra a sua anti-tese.
+
+Há a troca de polo, ou síntese dos polos que vai ser a nova tese e irá de encontro a sua anti-tese, gerando mudança na instância dos polos.
 
 
 # Fogo e tecnologia
