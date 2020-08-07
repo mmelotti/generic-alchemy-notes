@@ -76,6 +76,10 @@ Qual caminho iremos seguir?
 
 Para se ler um algoritmo de recomendação só é preciso respirar e lembrar de onde se tem clicado.
 
+Cada escolha tem um peso. Toda escolha tem um peso e uma liberdade para sempre. 
+
+É interessante ter um bom dever. E pensar sobre o que é um dever. A palavra dever em si pode ter uma irmã gêmea na palavra Karma.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
