@@ -74,6 +74,8 @@ Seremos aprisionados pelo nosso prórprio egoísmo, assimilado pelas novas intel
 
 Qual caminho iremos seguir?
 
+Para se ler um algoritmo de recomendação só é preciso respirar e lembrar de onde se tem clicado.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
