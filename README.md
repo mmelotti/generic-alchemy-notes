@@ -28,6 +28,8 @@ Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas int
 
 Jack Kerouac usando seu teclado mecânico no github.
 
+Para se ensinar a programar é preciso mostrar onde fica a porta primeiro, como em aprender qualquer coisa. E quanto mais gente você leva para porta que tem luz, mais iluminada a sala fica. VIDA LONGA AOS PROFESSORES!
+
 O tempo é importante. Mas lembramos de ter calma.
 
 Tem outra coisa que não volta atrás: um commit bem feito.
