@@ -56,6 +56,10 @@ A palavra mal falada é o aborto de um bom pensamento.
 
 Códigos e instruções estão ligados. O código é código apenas e para uma instrução, mas a quem instrui?
 
+A tal de internet: essa porra toda é um enorme AD.
+
+A internet é a nova lua, ou "the internet is the new moon". Nosso espelho, nosso Karma projetado no digital.
+
 Software é um elemental mais sublimado e o hardware mais denso. 
 
 O software é a prática da mente, o hardware é a prática do corpo. 
