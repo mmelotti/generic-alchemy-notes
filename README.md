@@ -48,6 +48,10 @@ Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer
 
 Já dizia Blake: se um tolo insistisse em sua tolice, sábio se tornaria. Assim como dando uma volta entre os polos de sabedoria e tolice.
 
+A arte é um espace da realidade? Pelo contrário: quando tocamos a arte, aprimoramos ferramentas internas para confrontrar e transmutar a realidade.
+
+Talvez escapemos um pouco pela arte, tudo bem. Mas se é o caso, que "deixamos a realidade" por um momento, então voltamos a ela mais fortes ou mais conscientes.
+
 Um pensamento impregna a imensidão. Pois tudo que se faz emana. 
 
 Palavras e ações ecoam na eternidade.
