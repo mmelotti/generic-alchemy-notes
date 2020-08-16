@@ -84,7 +84,9 @@ Qual caminho iremos seguir?
 
 Para se ler um algoritmo de recomendação só é preciso respirar e lembrar de onde se tem clicado.
 
-Cada escolha tem um peso. Toda escolha tem um peso e uma liberdade para sempre. 
+Cada escolha tem um peso. Toda escolha tem um peso e uma liberdade para sempre.
+
+A gente precisa esticar a corda, sempre um pouco mais, pelo bem, na melhoria contínua. Com um metro de cada vez o impossível não existe.
 
 É interessante ter um bom dever. E pensar sobre o que é um dever. A palavra dever em si pode ter uma irmã gêmea na palavra Karma.
 
