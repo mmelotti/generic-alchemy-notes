@@ -90,6 +90,10 @@ A gente precisa esticar a corda, sempre um pouco mais, pelo bem, na melhoria con
 
 É interessante ter um bom dever. E pensar sobre o que é um dever. A palavra dever em si pode ter uma irmã gêmea na palavra Karma.
 
+A miséria de um ser humano é a miséria de toda a humanidade. O que chamamos de humanidade hoje não tem ressonância com o conceito de humanidade.
+
+Os homens só serão livres quando todos os homens puderem ser livres. Talvez por isso o super-homem, pois precisamos de um novo conceito para uma super-humanidade.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
