@@ -92,7 +92,7 @@ A gente precisa esticar a corda, sempre um pouco mais, pelo bem, na melhoria con
 
 A miséria de um ser humano é a miséria de toda a humanidade. O que chamamos de humanidade hoje não tem ressonância com o conceito de humanidade.
 
-Os homens só serão livres quando todos os homens puderem ser livres. Talvez por isso o super-homem, pois precisamos de um novo conceito para uma super-humanidade.
+Os homens só serão livres quando cada home puder ser livre. Talvez por isso o super-homem, pois precisamos de um novo conceito, a humanidade está se desgastando em diversos sentidos, talvez para isso: super-humanidade.
 
 Remember to erase. Remember to delete me when you finish it, ok?
 
