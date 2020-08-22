@@ -353,6 +353,16 @@ Se Template N, N+1 , N+2... [ composed-by ]  Organismo N, N+1, N+2.... ou GCompo
 THEN You should problably want a BaseTemplate.
 
 
+# Fluxo Continuado
+
+As above so WOW !
+
+As realidade superiores e ocultas se ocultam, ninguém o faz.
+
+Da mesma forma que são ocultas para vibrações diferentes ou de polos opostos.
+
+
+
 
 # Goals and Operation
 
