@@ -94,6 +94,8 @@ A miséria de um ser humano é a miséria de toda a humanidade. O que chamamos d
 
 Os homens só serão livres quando cada homem puder ser livre. Talvez por isso o super-homem, pois precisamos de um novo conceito, a humanidade está se desgastando (em diversos sentidos - literais, análogos, metáforicos, simbólicos etc etc), talvez para isso: super-humanidade.
 
+Só precisamos de humildade e iniciativa na medida certa.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
