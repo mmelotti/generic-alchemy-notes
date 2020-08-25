@@ -96,6 +96,8 @@ Os homens só serão livres quando cada homem puder ser livre. Talvez por isso o
 
 Só precisamos de humildade e iniciativa na medida certa.
 
+Que ilusório seria exergar-se pequeno, esquecendo que além de humano, somos um só país, um só planeta, um só teto.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
