@@ -367,6 +367,13 @@ Da mesma forma que são ocultas para vibrações diferentes ou de polos opostos.
 
 
 
+# Ataque à igreja
+
+A mitologia judaíco cristã tem um tom muito sobre humano se a botamos de lado a lado com outras filosofias/mitologias no seu sentido divino, apesar de Jesus tentar demonstar sua humanidade, ou sej, aquele que precisa realizar na prática aquilo a que se propôs, vampiros da fé alheia, magos do lado negro, ou pastores corruptos etc.
+
+
+A igreja era em um tempo, a casa da caridade compartilhada, daí houve um ataque a igreja, e daí roubaram a Igreja e elegeram no processo, demônios como seus sacerdotes.
+
 
 # Goals and Operation
 
