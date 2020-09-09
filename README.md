@@ -372,7 +372,11 @@ Da mesma forma que são ocultas para vibrações diferentes ou de polos opostos.
 A mitologia judaíco cristã tem um tom muito sobre humano se a botamos de lado a lado com outras filosofias/mitologias no seu sentido divino, apesar de Jesus tentar demonstar sua humanidade, ou sej, aquele que precisa realizar na prática aquilo a que se propôs, vampiros da fé alheia, magos do lado negro, ou pastores corruptos etc.
 
 
-A igreja era em um tempo, a casa da caridade compartilhada, daí houve um ataque a igreja, e daí roubaram a Igreja e elegeram no processo, demônios como seus sacerdotes.
+A igreja era em um tempo, a casa da caridade compartilhada, daí houve um ataque a igreja e daí roubaram a Igreja e elegeram no processo, demônios como seus sacerdotes.
+
+Daí que Roma ainda pode mostrar um pingo de verdade para toda a humanidade, pode mostrar Amor, pois o povo está sedento por espírito e até agora só botaram no prato a letra que mata. Ainda vale compartilhar a verdade, a luz, o bom, a caridade, a humanidade que resta. Por Amor, Roma, aquele ato humilde despretensioso sempre foi a maior arma que se apresentou ao homem em toda sua história.
+
+Eu sou um sábio ou um tolo por acreditar na rebeldia amorosa do vaticano?
 
 
 # Goals and Operation
