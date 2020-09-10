@@ -98,6 +98,8 @@ Só precisamos de humildade e iniciativa na medida certa.
 
 Que ilusório seria exergar-se pequeno, esquecendo que além de humano, somos um só país, um só planeta, um só teto.
 
+O crescimento do veganismo só pode levar a uma valorização do mundo vegetal e mineral. Em consequência, a um aumento de consciência, ou a transvalorização de algum valor.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
