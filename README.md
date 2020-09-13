@@ -100,6 +100,8 @@ Que ilusório seria exergar-se pequeno, esquecendo que além de humano, somos um
 
 O crescimento do veganismo só pode levar a uma valorização do mundo vegetal e mineral. Em consequência, a um aumento de consciência, ou a transvalorização de algum valor.
 
+Não basta ser ler livros de alquima e buscar pela alquimia. É preciso ser um alquimista sem financiamento.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
