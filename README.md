@@ -106,6 +106,8 @@ Vemos hoje incoscientemente a internet e a tecnologia no geral como uma coisa m�
 
 Quem me dera se os sábios imortais taoístas fossem cristos e budas!
 
+Todos os personagens não são importantes: cada personagem importa.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
