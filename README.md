@@ -108,6 +108,8 @@ Quem me dera se os sábios imortais taoístas fossem cristos e budas!
 
 Todos os personagens não são importantes: cada personagem importa.
 
+Se você quer comparar 2 substâncias, o modo mais rápido é usando a forma analógica: fixe o ponto mais volátivl e se projete no fixo, fazendo distinções e comparações sobre forma, cor, número, etc. A comparação mais eficaz do modelo analógico é usar multiplos pontos fixos conforme a complexidade da substância volátil a ser analisada. Hoje isso se chama ciência, porém algumas vezes esquecem que o primeiro ponto volátil se expande a medida que novos pontos fixos são adicionados a análise.
+
 Remember to erase. Remember to delete me when you finish it, ok?
 
 # PROJECT connect - crossing worlds
