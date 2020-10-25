@@ -38,6 +38,8 @@ Ainda assim, tem hora que da bosta mesmo.
 
 Meu eu do passado escreve para me lembrar que há janelas e portas.
 
+Ou talvez meu eu do passado é um pedreiro, um construtor.
+
 É preciso saber com quem pode comunicar-se, assim coordena-se e coopera-se.
 
 Se hoje um tem lenha, é porque se ganhou a lenha, lá atrás alguém disse que era uma boa coisa. Mas não será assim para sempre.
@@ -94,7 +96,7 @@ A miséria de um ser humano é a miséria de toda a humanidade. O que chamamos d
 
 Os homens só serão livres quando cada homem puder ser livre. Talvez por isso o super-homem, pois precisamos de um novo conceito, a humanidade está se desgastando (em diversos sentidos - literais, análogos, metáforicos, simbólicos etc etc), talvez para isso: super-humanidade.
 
-Só precisamos de humildade e iniciativa na medida certa.
+Só precisamos de humildade e iniciativa na medida certa. Assim somos humanos.
 
 Que ilusório seria exergar-se pequeno, esquecendo que além de humano, somos um só país, um só planeta, um só teto.
 
@@ -112,7 +114,7 @@ Se você quer comparar 2 substâncias, o modo mais rápido é usando a forma ana
 
 A resposta é explorar. Precisamos explorar o espaço e principalmente as dimesões internas. 
 
-Não precisamos de uma "máquina como a mente" para tirar conclusões. Pra isso a A.I.
+Não precisamos de uma "máquina como a mente" apenas para tirar conclusões. Pra isso a A.I.
 
 
 Remember to erase. Remember to delete me when you finish it, ok?
