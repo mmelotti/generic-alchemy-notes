@@ -1,5 +1,5 @@
 # generic-alchemy-notes
-Generic Alchemy Notes
+Generic Alchemy Notes: from connected computers to connected thoughts
 
 
 "This is a project that aims in transmutate lead in gold, but not fool's gold."
