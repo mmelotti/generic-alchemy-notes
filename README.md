@@ -640,3 +640,17 @@ Não sei se eram espelhos, no final o fantasma
 caiu manchado de sangue do tiro na cabeça.
 
 Nunca houve fantasma. Só irmãos brincando com lençóis.
+
+
+## GAME LENS
+
+the lost islands,
+
+cada um crescendo em lugares diferentes,
+geograficamente acima ou abaixo, ilhas e airwaves,
+com o tempo pode visitar temporiaramente,.....
+dentro da propria ilha pequenos desafios...... tempos em tempos hordas....
+
+Lente 64, despertar a imaginação, lugares especiais de visitar, espionar
+
+por isso a lente da projeção
