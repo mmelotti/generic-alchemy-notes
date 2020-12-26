@@ -648,3 +648,7 @@ Nunca houve fantasma. Só irmãos brincando com lençóis.
 Lente 64, despertar a imaginação, lugares especiais de visitar, espionar
 
 por isso a lente da projeção
+
+Lente 80, comportamente reflexo do status, como pode ser interessante
+
+por isso a lente do status
