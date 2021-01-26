@@ -106,6 +106,8 @@ Não basta ser ler livros de alquima e buscar pela alquimia. É preciso ser um a
 
 Nada é de ninguém, ter é como trocar de mãos. O que acontece hoje é apenas um ensaio para a economia colaborativa universal.
 
+Open Source é lindo !!! Obrigado
+
 Vemos hoje incoscientemente a internet e a tecnologia no geral como uma coisa mágica, maravilhosa, só benefícios. Quando lemos dos maleficios de coisas como algoritmos de recomendação, tendemos a querer nos distanciar disso e a primeira impressão é muito boa, mas logo depois caimos em desencanto: como substituir um vício por um hábito bom?
 
 Quem me dera se os sábios imortais taoístas fossem cristos e budas!
