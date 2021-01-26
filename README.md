@@ -108,6 +108,10 @@ Nada é de ninguém, ter é como trocar de mãos. O que acontece hoje é apenas 
 
 Open Source é lindo !!! Obrigado
 
+O fato da iniciativa open source ter crescido lado a lado com o avanço da tecnologia dos últimos anos diz muito sobre o caminho que estamos trilhando. Diz muito também sobre o Universo, no geral. 
+
+Vida é abundância, é caridade, é doação, é compartilhar antes de vender.
+
 Vemos hoje incoscientemente a internet e a tecnologia no geral como uma coisa mágica, maravilhosa, só benefícios. Quando lemos dos maleficios de coisas como algoritmos de recomendação, tendemos a querer nos distanciar disso e a primeira impressão é muito boa, mas logo depois caimos em desencanto: como substituir um vício por um hábito bom?
 
 Quem me dera se os sábios imortais taoístas fossem cristos e budas!
