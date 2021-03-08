@@ -317,6 +317,12 @@ Titulos - temas: CHINA VS EUA, SEU EMPREGO NÃO EXISTIRÁ MAIS ao menos do jeito
 MCLUahn and Kirshnamurti + Blake e os opostos em midia e tecnologia....
 
 
+
+# ECOLOGIA PROFUNDA
+
+Realimentação
+
+
 # SKILLS (API - ENGINE)
 
 Attacks - em direção ao espaço
