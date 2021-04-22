@@ -66,6 +66,8 @@ A tal de internet: essa porra toda é um enorme AD.
 
 A internet é a nova lua, ou "the internet is the new moon". Nosso espelho, nosso Karma projetado no digital.
 
+Um comunismo dentro do capitalismo eles diriam. Alguns jogam os mesmos jogos de interesses, como se operassem na mesma frequência dentre as diversas sintonias possíveis. Alguns observam do tabuleiro e outro sobre o tabuleiro.
+
 Software é um elemental mais sublimado e o hardware mais denso. 
 
 O software é a prática da mente, o hardware é a prática do corpo. 
