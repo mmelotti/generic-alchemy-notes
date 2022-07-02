@@ -2,6 +2,9 @@
 Generic Alchemy Notes: from connected computers to connected thoughts
 
 
+O único caminho possível para a esquerda ou a direita é tomar a pauta da consciência, do auto conhecimento, do alimento. Não tem outra palavra para sistetizar o que é necessário : caridade. Abrir as contas e acabar com a corrupção de uma vez enquanto for possível, por quanto for possível. Abrir as contas, visistar as quebradas, dar o alimento, fortalecer a colaboração e a união para o alcance de um objetivo: uma mudança de consicência. Abrir as contas, subir um degrau da escada para todo o mundo ver. Isso é tudo que precisa ser dito
+
+
 "This is a project that aims in transmutate lead in gold, but not fool's gold."
 
 Os logs de alteração da coisa toda são muito importantes.
