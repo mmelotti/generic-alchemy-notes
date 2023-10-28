@@ -23,7 +23,7 @@ Cada coisa é uma coisa dentro de outra coisa.
 
 Acho que esse livro é um dos mais difíceis de se escrever, não pela nova forma de interação, mas pela rotina de buscar algo mais para compartilhar. 
 
-Lebrar de compartilhar o belo de nós sempre que possível.
+Lembrar de compartilhar o belo de nós sempre que possível.
 
 Histórias formam narrativas, quanto mais reto o conto, menos curvas há nas interpretações. Qual a sua história?
 
@@ -53,7 +53,7 @@ Se hoje se aquece, é porque alguém pensou em aquecer e mostrou como se aquecer
 
 Já dizia Blake: se um tolo insistisse em sua tolice, sábio se tornaria. Assim como dando uma volta entre os polos de sabedoria e tolice.
 
-A arte é um espace da realidade? Pelo contrário: quando tocamos a arte, aprimoramos ferramentas internas para confrontrar e transmutar a realidade.
+A arte é um "escape" da realidade? Pelo contrário: quando tocamos a arte, aprimoramos ferramentas internas para confrontrar e transmutar a realidade.
 
 Talvez escapemos um pouco pela arte, tudo bem. Mas se é o caso, que "deixamos a realidade" por um momento, então voltamos a ela mais fortes ou mais conscientes.
 
